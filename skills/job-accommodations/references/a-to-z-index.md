@@ -143,7 +143,7 @@ has an accommodation in mind and wants JAN's take on it.
 
 ## Notes for the skill
 
-- The per-disability accommodation ideas live in `references/accommodations-by-disability/` (`a-g.md`, `h-p.md`, `q-z.md`): all 103 JAN disability pages, extracted 2026-10-06, each section organized by limitation with its source URL and real-case examples where JAN gives them. 13 disabilities have no accommodation list on their JAN pages (Fetal Alcohol Syndrome, Learning Disability, Lupus, Lyme Disease, Marfan Syndrome, Anxiety Disorder, Bipolar Disorder, Depression, Eating Disorders, OCD, Personality Disorder, Phobias, Schizophrenia) — those pages point to JAN's "Accommodation Solutions: Executive Functioning Deficits" publication instead, fully extracted in `references/executive-functioning-deficits.md`.
+- The per-disability accommodation ideas live in `references/accommodations-by-disability/` (`a-b.md`, `c-d.md`, `e-g.md`, `h-p.md`, `q-z.md`): all 103 JAN disability pages, extracted 2026-10-06, each section organized by limitation with its source URL and real-case examples where JAN gives them. 13 disabilities have no accommodation list on their JAN pages (Fetal Alcohol Syndrome, Learning Disability, Lupus, Lyme Disease, Marfan Syndrome, Anxiety Disorder, Bipolar Disorder, Depression, Eating Disorders, OCD, Personality Disorder, Phobias, Schizophrenia) — those pages point to JAN's "Accommodation Solutions: Executive Functioning Deficits" publication instead, fully extracted in `references/executive-functioning-deficits.md`.
 - Every entry page carries JAN's contact options: (800) 526-7234 (Voice), TTY
   (304) 293-7186, jan@askjan.org, and Employer Live Chat.
 - JAN states its A-to-Z PDFs are updated periodically (the accommodation PDFs were dated
