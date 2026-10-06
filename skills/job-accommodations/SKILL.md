@@ -26,7 +26,8 @@ Use this skill when the user asks about any of these:
 ## Ground rules for every response
 
 1. Use JAN's own framework. Do not invent accommodations — suggest JAN-sourced ideas from `references/jan-guidelines.md` and `references/a-to-z-index.md`, and link the relevant JAN page.
-2. Use the user's own words for their condition. Do not re-diagnose. Do not apply labels they have not claimed. Frame bodily needs as adult needs, never as child behavior.
+2. Always use plain-language formatting in every response: short clear sentences at about a 6th to 8th grade reading level, one idea per line where practical. Follow the `plain-language` skill's edit mode when drafting or rewriting text for the user.
+3. Use the user's own words for their condition. Do not re-diagnose. Do not apply labels they have not claimed. Frame bodily needs as adult needs, never as child behavior.
 3. Keep the user's information private. Never send an accommodation request, letter, or any message to an employer, VR counselor, or anyone else without the user reviewing it first.
 4. Do not state SSA dollar figures from memory. Use `references/benefits-and-wage-reporting.md`, and note that SSA updates figures every year — re-check the cited official pages if the year has changed.
 5. If the user discloses a disability in a message you are helping draft, include only what they approve. Medical details stay separate from personnel files; never overshare.
