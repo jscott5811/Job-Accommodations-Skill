@@ -1,0 +1,2639 @@
+# Accommodation Ideas by Disability (JAN)
+
+Accommodation ideas from JAN's A-to-Z disability pages, extracted 2026-10-06. JAN materials are U.S. Government works. Verify against the live page before quoting — pages are updated periodically.
+
+## Addison's Disease
+Source: https://askjan.org/disabilities/Addison-s-Disease.cfm
+**Decreased Stamina/Fatigue:**
+- Anti-fatigue Matting
+- Elevating Wheelchairs
+- Ergonomic Equipment
+- Scooters
+- Stand-lean Stools
+- Walkers
+- Wearable Anti-fatigue Matting
+- Wheelchairs
+- Aide/Assistant/Attendant
+- Ergonomic Assessments
+- Flexible Schedule
+- Job Restructuring
+- Periodic Rest Breaks
+- Task Rotation
+- Telework, Work from Home, Working Remotely
+- Worksite Redesign / Modified Workspace
+**Dietary Needs:**
+- Flexible Schedule
+- Mini Refrigerators/ Electric Coolers
+- Policy Modification
+**Low Vision:**
+- Screen Magnification Software
+- Screen Magnification and Screen Reading Combined
+- External Computer Screen Magnification
+- Portable Video/Electronic Magnifiers
+- Magnification (Hand or Stand)
+- Head-mounted Magnifiers
+- Apps for Individuals with Vision Impairment
+- Lighted Reading Glasses
+- Low Vision Office Supplies
+- Accessible Mobile Phones
+- Accessible Telephones
+- Large Button Phones
+- Large Visual Display for Telephone
+**Nausea:**
+- Flexible Schedule
+- Mini Refrigerators/ Electric Coolers
+- Odor Control
+- Telework, Work from Home, Working Remotely
+**Pain:**
+- Adjustable Workstations for Industrial Settings
+- Anti-fatigue Matting
+- Anti-vibration Gloves
+- Anti-vibration Seats
+- Anti-vibration Tool Wraps
+- Carts
+- Ergonomic Equipment
+- Fans
+- Ergonomic Assessments
+- Stand-lean Stools
+- Wearable Anti-fatigue Matting
+- Workstation Space Heaters
+- Adjustable Workstations for Office Settings
+- Alternative Keyboards
+- Alternative Mice
+- Automatic Door Openers
+- Chairs with Head Support
+- Compact Material Handling
+- Ergonomic and Adjustable Office Chairs
+- Forearm Support
+- Gooseneck and Other Telephone Holders
+- Headsets
+- Scooters
+- Speech Recognition Software
+- Supine Workstations
+- Worksite Redesign / Modified Workspace
+- Writing Aids
+- Aide/Assistant/Attendant
+- Scribe/Notetaker
+- Service Animal
+- Flexible Schedule
+- Modified Break Schedule
+- Telework, Work from Home, Working Remotely
+**Standing:**
+- Adjustable Workstations for Industrial Settings
+- Adjustable Workstations for Office Settings
+- Anti-fatigue Matting
+- Assist Lift Cushions
+- Elevating Lift and Office Chairs
+- Scooters
+- Grab Bars
+- Stand Aids
+- Stand-lean Stools
+- Stand-up Wheelchairs
+- Flexible Schedule
+- Periodic Rest Breaks
+**Stress Intolerance:**
+- Apps for Anxiety and Stress
+- Environmental Sound Machines / Tinnitus Maskers / White Noise Machines
+- Behavior Modification Techniques
+- Counseling/Therapy
+- Support Animal
+- Support Person
+- Flexible Schedule
+- Job Restructuring
+- Marginal Functions
+- Modified Break Schedule
+- Supervisory Methods
+**Temperature Sensitivity:**
+- Air Deflectors
+- Cold Resistant Gloves
+- Flexible Schedule
+- Heated Clothing
+- Heated Ergonomic and Computer Products
+- Heated Gloves
+- Telework, Work from Home, Working Remotely
+- Vent Covers
+- Workstation Space Heaters
+- Cooling Clothing
+- Fans
+- Portable Air Conditioners
+**Walking:**
+- Scooters
+- Walkers
+- Wheelchairs
+Example: A dental hygienist had Addison's disease. She had difficulty leaning over patients. Her employer accommodated her with a forward-leaning chair.
+Example: A counselor with Addison's disease was dealing with severe fatigue and depression. The individual was given a flexible schedule to work around his fatigue and attend counseling.
+
+## Aging
+Source: https://askjan.org/disabilities/Aging.cfm
+**Attentiveness/Concentration:**
+- Alerting Devices
+- Alternative Lighting
+- Applications (apps)
+- Apps for Memory
+- Behavior Modification Techniques
+- Calendars and Planners
+- Cubicle Doors, Shields, and Shades
+- Electronic Organizers
+- Environmental Sound Machines / Tinnitus Maskers / White Noise Machines
+- Flexible Schedule
+- Full Spectrum or Natural Lighting Products
+- Job Coaches
+- Job Restructuring
+- Marginal Functions
+- Modified Break Schedule
+- Noise Canceling Headsets
+- Personal On-Site Paging Devices
+- Professional Organizers
+- Sound Absorption and Sound Proof Panels
+- Task Separation
+- Telework, Work from Home, Working Remotely
+- Timers and Watches
+- Uninterrupted "Off" Work Time
+- Verbal Cues
+- Visual Schedulers
+- Worksite Redesign / Modified Workspace
+- Written Instructions
+**Balancing:**
+- Bath Chairs
+- Canes
+- Crutches
+- Grab Bars
+- Personal Safety and Fall Alert Devices
+- Rollators and Rolling Walkers
+- Walkers
+- Scooters
+- Stair Assists
+- Stair Lifts
+- Swing Away Grab Bars
+- Walkers with Seats
+- Toileting Aids
+- All-Terrain Scooters
+- All-Terrain Wheelchairs
+- Personal Transportation and Mobility Products
+- Aerial Lifts
+- Fall Protection
+- Rolling Safety Ladders
+- Anti-fatigue Matting
+- Evacuation Devices
+- Padded Edging
+- Protective Eyewear
+**Decreased Stamina/Fatigue:**
+- Accessories for Scooters
+- Aide/Assistant/Attendant
+- All-Terrain Scooters
+- Anti-fatigue Matting
+- Elevating Wheelchairs
+- Ergonomic and Pneumatic Tools
+- Ergonomic Assessments
+- Ergonomic Equipment
+- Examination and Procedures Chair
+- Flexible Schedule
+- Head Support for Wheelchairs
+- Job Restructuring
+- Low Task Chair
+- Mechanic's Seats and Creepers
+- Multi-Purpose Carts
+- Periodic Rest Breaks
+- Scooters
+- Stand-lean Stools
+- Stools for Cutting Hair
+- Task Rotation
+- Telework, Work from Home, Working Remotely
+- Walkers
+- Wearable Anti-fatigue Matting
+- Wheelchair Accessible Scales
+- Wheelchair Mounts
+- Wheelchairs
+- Worksite Redesign / Modified Workspace
+**Effect of/Receive Medical Treatment:**
+- Augmentative and Alternative Communication (AAC) Device
+- Flexible Schedule
+- Outgoing Voice Amplification - Telephone
+- Personal On-Site Paging Devices
+- Protective Eyewear
+- Telework, Work from Home, Working Remotely
+- Voice Amplification
+**Hearing Impairment:**
+- Apps for Individuals Who are Deaf or Hard of Hearing
+- Large Visual Display for TTY
+- Masks - Clear
+- Real-time and Off-line Captioning Services
+**Lifting:**
+- Animal Lift Tables
+- Carts
+- Compact Mobile Cranes
+- Aerial Lifts
+- Battery Powered Lift Tables
+- Engine Lifts and Lift Plates
+- Lift Gates
+- Lift Tables
+- Ball Transfer Tables
+- Rolling Safety Ladders
+- Drum Handling
+- Stairclimbing Handtrucks
+- Vacuum Lifts
+- Truck Mounted Cranes
+- Vehicle Lifts and Manipulators
+- Winches and Chain Hoists
+- Work Platforms
+- Compact Material Handling
+- Ergonomic Assessments
+- Ergonomic Equipment
+- Height Adjustable Table Legs
+- Low Task Chair
+- Drywall and Wallboard Lifts
+- Independent Living Aids
+- Job Restructuring
+- Lifters and Carriers for Mobility Aids
+- Lifting Aids
+- Manhole Cover Lifts
+- Periodic Rest Breaks
+- Power Lift IV Stands
+- Proper Lifting Techniques
+- Adult Changing Tables
+- Adjustable Exam Tables
+- Bath Chairs
+- Evacuation Devices
+- Large-Rated Wheelchair Lifts
+- Patient Lifts (General)
+- Pool Lifts
+- Powered Bath Lifts
+- Toileting Aids
+- Transfer Aids
+- Transfer Sheets
+- Walk-up Changing Tables
+- Wheelchair Lifts
+**Low Vision:**
+- External Computer Screen Magnification
+- Head-mounted Magnifiers
+- Magnification (Hand or Stand)
+- Portable Video/Electronic Magnifiers
+- Screen Magnification Software
+- Screen Magnification and Screen Reading Combined
+- Apps for Individuals with Vision Impairment
+- Lighted Reading Glasses
+- Low Vision Office Supplies
+- Accessible Mobile Phones
+- Accessible Telephones
+- Large Button Phones
+- Large Visual Display for Telephone
+**Memory Loss:**
+- Additional Training Time / Training Refreshers
+- Apps for Memory
+- Calendars and Planners
+- Electronic Organizers
+- Job Coaches
+- Professional Organizers
+- Recorded Directives, Messages, Materials
+- Reminders
+- Social Skill Builders
+- Support Person
+- Verbal Cues
+- Visual Schedulers
+- Written Instructions
+**Overall Body Weakness/Strength:**
+- Grab Bars
+- Personal Safety and Fall Alert Devices
+- Independent Living Aids
+- Toileting Aids
+- Aide/Assistant/Attendant
+- Scooters
+- Walkers
+- Wheelchairs
+- Anti-fatigue Matting
+- Compact Material Handling
+- Ergonomic and Adjustable Office Chairs
+- Ergonomic Equipment
+- Forearm Support
+- Multi-Purpose Carts
+- Stair Lifts
+- Stand-lean Stools
+- Wearable Anti-fatigue Matting
+- Worksite Redesign / Modified Workspace
+- Modified Break Schedule
+- Periodic Rest Breaks
+- Telework, Work from Home, Working Remotely
+**Pain:**
+- Adjustable Workstations for Industrial Settings
+- Anti-fatigue Matting
+- Anti-vibration Gloves
+- Anti-vibration Seats
+- Anti-vibration Tool Wraps
+- Carts
+- Ergonomic Assessments
+- Ergonomic Equipment
+- Fans
+- Stand-lean Stools
+- Wearable Anti-fatigue Matting
+- Workstation Space Heaters
+- Adjustable Workstations for Office Settings
+- Alternative Keyboards
+- Gooseneck and Other Telephone Holders
+- Scribe/Notetaker
+- Speech Recognition Software
+- Headsets
+- Supine Workstations
+- Worksite Redesign / Modified Workspace
+- Writing Aids
+- Scooters
+- Alternative Mice
+- Forearm Support
+- Automatic Door Openers
+- Chairs with Head Support
+- Compact Material Handling
+- Ergonomic and Adjustable Office Chairs
+- Aide/Assistant/Attendant
+- Flexible Schedule
+- Modified Break Schedule
+- Service Animal
+- Telework, Work from Home, Working Remotely
+**Respiratory Distress/Breathing Problem:**
+- Air Cleaners & Purifiers
+- Air Cleaners - Chemical/Odor Removal
+- Air Cleaning Systems
+- Air Purifiers for Multiple Chemical Sensitivity
+- Alternative Cleaning Supplies
+- Augmentative and Alternative Communication (AAC) Device
+- Carpet Alternatives, Sealants, and Sustainable Flooring
+- Escape Hoods
+- Flexible Schedule
+- Floor Cleaning/Stripping Products - Chemical Sensitivity
+- Low/No Odor Paints and Stains
+- Mask Brackets and Frames
+- Masks - Respirator
+- Masks – General/Chemical/Allergen
+- Odor Control
+- Outgoing Voice Amplification - Telephone
+- Personal Air Cleaner (Neckworn)
+- Personal On-Site Paging Devices
+- Powered Air Purifying Respirator (PAPR)
+- Telework, Work from Home, Working Remotely
+- Voice Amplification
+**Stress Intolerance:**
+- Apps for Anxiety and Stress
+- Behavior Modification Techniques
+- Counseling/Therapy
+- Environmental Sound Machines / Tinnitus Maskers / White Noise Machines
+- Flexible Schedule
+- Job Restructuring
+- Marginal Functions
+- Modified Break Schedule
+- Supervisory Methods
+- Support Animal
+- Support Person
+**Take Medication:**
+- Additional Training Time / Training Refreshers
+- Flexible Schedule
+- Medication Reminders
+- Policy Modification
+- Reminders
+- Rest Area/Private Space
+- Telework, Work from Home, Working Remotely
+- Verbal Cues
+- Voice Recorders
+**Toileting/Grooming Issue:**
+- Accessible Toilets and Toilet Seats
+- Aide/Assistant/Attendant
+- Flexible Schedule
+- Grab Bars - Toilet Hinged Arm Support
+- Grooming and Dressing Aids
+- Independent Living Aids
+- Modified Break Schedule
+- Swing Away Grab Bars
+- Telework, Work from Home, Working Remotely
+- Toileting Aids
+- Transfer Aids
+- Transfer Sheets
+- Worksite Redesign / Modified Workspace
+**Walking:**
+- Scooters
+- Walkers
+- Wheelchairs
+Example: Ruth was recently diagnosed with dementia. She has been having great difficulty performing the essential functions of her position. With information from Ruth’s doctor, her employer determined that she would do better at tasks that are repetitive and routine.
+Example: An individual with osteoarthritis and walking limitations had difficulty accessing the work-site. The employer contacted JAN asking for ways to improve access.
+
+## Albinism
+Source: https://askjan.org/disabilities/Albinism.cfm
+- Low Vision: screen magnification software; portable video/electronic magnifiers; head-mounted magnifiers; hand/stand magnifiers; enlarged keyboard tops and labels; lighted reading glasses; large button phones; accessible telephones; apps for individuals with vision impairment
+- Photosensitivity: alternative lighting; anti-glare filters for fluorescent lights; LED light filters; non-fluorescent lighting; fluorescent light tube covers; cubicle doors/shields/shades; light filtering glasses; lighting gel filters; personal visors; sun/UV protective clothing
+- Work-Related Functions (Access Information; Light): screen magnification software; external computer screen magnification; accessible telephones; alternative lighting; modified lighting; flexible schedule; telework/work from home/working remotely; transparent window shades; UV protection shelters; vehicle window tinting and shades
+Example: A law office clerk with low vision from albinism got memos in minimum 18-point font plus a stand-up magnifier. (Also: a groundskeeper with albinism got flexible unpaid breaks to reapply sunscreen, with end time extended; an employee who couldn't read small print got a portable reader with headset that photographed documents and read them aloud.)
+
+## Alcoholism
+Source: https://askjan.org/publications/Disability-Downloads.cfm?action=download&pubid=206254&pubtype=pdf
+- Leave for inpatient treatment; flexible scheduling for counseling or AA/support meetings
+- Last chance agreements (continued employment conditioned on treatment and not being intoxicated at work)
+- Excused from work social events where alcohol is served
+- Job-protected leave (FMLA) for residential treatment programs
+- Attentiveness/concentration: alerting devices, alternative lighting, apps, calendars and planners, cubicle shields, electronic organizers, environmental sound machines, flexible schedule, job coaches, job restructuring, marginal functions, modified break schedule, noise-canceling headsets, timers, telework, uninterrupted off time, verbal cues, written instructions
+- Decreased stamina/fatigue, effect of medical treatment, executive functioning, organizing/planning, stress intolerance, stress, and cognitive function: standard JAN sets — flexible schedule, job restructuring, periodic rest breaks, telework, checklists, color-coded systems, reminders, supervisory methods, support persons, written instructions
+Example: A sales representative who relapsed after a divorce and faced termination for coming to work intoxicated was given a last chance agreement requiring treatment and no further intoxication at work. / An office manager returning from inpatient treatment was given a schedule that allowed attending AA meetings.
+
+## Allergies
+Source: https://askjan.org/disabilities/Allergies.cfm
+**Key accommodations (JAN):**
+- When accommodating employees with allergies, the main accommodation options include removing the allergen, removing the employee from where the allergen is located, or eliminating or reducing exposure to an acceptable...
+- **Remove the Allergen:** When possible, an employer should try to remove the allergen, especially if the allergen is unique to the work environment, minimal and/or the employer has control over it.
+- **Move the Employee:** When it is not possible to remove the allergen or if the specific allergen is unknown, an employer may be able to move the employee away from the allergen. This usually means working at home or in a private office.
+- **Reduce Exposure:** If the allergen cannot be removed and the employee cannot be moved completely away from the allergen, it may be possible to reduce the employee's exposure to an acceptable level.
+**Coughing Excessively:**
+- Environmental Sound Machines / Tinnitus Maskers / White Noise Machines
+- Noise Abatement
+- Policy Modification
+- Telework, Work from Home, Working Remotely
+- Worksite Redesign / Modified Workspace
+**Dietary Needs:**
+- Flexible Schedule
+- Mini Refrigerators/ Electric Coolers
+- Policy Modification
+**Headache:**
+- Air Cleaners & Purifiers
+- Alternative Lighting
+- Anti-Glare Filters for Fluorescent Lights
+- Cubicle Doors, Shields, and Shades
+- Environmental Sound Machines / Tinnitus Maskers / White Noise Machines
+- Flexible Schedule
+- Full Spectrum or Natural Lighting Products
+- Job Restructuring
+- Lighting Gel Filters
+- Marginal Functions
+- Modified Break Schedule
+- Non-Fluorescent Lighting
+- Task Lighting
+- Telework, Work from Home, Working Remotely
+**Nausea:**
+- Flexible Schedule
+- Mini Refrigerators/ Electric Coolers
+- Odor Control
+- Telework, Work from Home, Working Remotely
+**Respiratory Distress/Breathing Problem:**
+- Air Cleaners & Purifiers
+- Air Cleaners - Chemical/Odor Removal
+- Air Cleaning Systems
+- Air Purifiers for Multiple Chemical Sensitivity
+- Alternative Cleaning Supplies
+- Augmentative and Alternative Communication (AAC) Device
+- Carpet Alternatives, Sealants, and Sustainable Flooring
+- Escape Hoods
+- Flexible Schedule
+- Floor Cleaning/Stripping Products - Chemical Sensitivity
+- Low/No Odor Paints and Stains
+- Mask Brackets and Frames
+- Masks - Respirator
+- Masks – General/Chemical/Allergen
+- Odor Control
+- Outgoing Voice Amplification - Telephone
+- Personal Air Cleaner (Neckworn)
+- Personal On-Site Paging Devices
+- Powered Air Purifying Respirator (PAPR)
+- Telework, Work from Home, Working Remotely
+- Voice Amplification
+**Skin Rash/Blisters/Sores:**
+- Alternative Cleaning Supplies
+- Augmentative and Alternative Communication (AAC) Device
+- Disability Awareness/Etiquette Training
+- Job Restructuring
+- Odor Control
+- Outgoing Voice Amplification - Telephone
+- Policy Modification
+- Touchless Faucets
+- Voice Amplification
+Example: An office worker with severe allergies was having reactions to cleaning wipes used during the pandemic. The employee was given a private office space, allowed to clean the space with a different cleaner and provided a HEPA air purifier.
+Example: An employee with a severe allergy to bee stings asked to park closer to the worksite to avoid exposure. Because of limited parking close to the worksite, the employer instead sprayed for bees in the parking lot and along the route to the worksite and developed a plan of action...
+
+## Alzheimer's Disease
+Source: https://askjan.org/disabilities/Alzheimer-s-Disease.cfm
+**Executive Functioning Deficits:**
+- Apps for Concentration
+- Apps for Memory
+- Calendars and Planners
+- Checklists
+- Color Coded System
+- Cubicle Doors, Shields, and Shades
+- Environmental Sound Machines / Tinnitus Maskers / White Noise Machines
+- Extra Time
+- Flexible Schedule
+- Form Generating Software
+- Full Spectrum or Natural Lighting Products
+- Job Coaches
+- Job Restructuring
+- Marginal Functions
+- Modified Break Schedule
+- Noise Canceling Earbuds
+- Noise Canceling Headsets
+- On-site Mentoring
+- Recorded Directives, Messages, Materials
+- Reminders
+- Sound Absorption and Sound Proof Panels
+- Speech Recognition Software
+- Sun Boxes and Lights
+- Sun Simulating Desk Lamps
+- Timers and Watches
+- Written Instructions
+**Managing Time:**
+- Applications (apps)
+- Apps for Organization/ Time Management
+- Calendars and Planners
+- Checklists
+- Color Coded System
+- Electronic Organizers
+- Marginal Functions
+- PDAs, Notetakers, and Laptops
+- Personal On-Site Paging Devices
+- Reminders
+- Task Separation
+- Timers and Watches
+- Written Instructions
+**Memory Loss:**
+- Additional Training Time / Training Refreshers
+- Apps for Memory
+- Calendars and Planners
+- Electronic Organizers
+- Job Coaches
+- Professional Organizers
+- Recorded Directives, Messages, Materials
+- Reminders
+- Social Skill Builders
+- Support Person
+- Verbal Cues
+- Visual Schedulers
+- Written Instructions
+**Organizing/Planning/Prioritizing:**
+- Applications (apps)
+- Apps for Organization/ Time Management
+- Calendars and Planners
+- Color-coded Manuals, Outlines, and Maps
+- Electronic Organizers
+- Ergonomic Equipment
+- Job Coaches
+- Job Restructuring
+- On-site Mentoring
+- Organization Software
+- Personal On-Site Paging Devices
+- Professional Organizers
+- Reminders
+- Supervisory Methods
+- Task Identification
+- Task Rotation
+- Task Separation
+- Timers and Watches
+- Visual Schedulers
+- Written Instructions
+Example: A finance manager with Alzheimer’s disease had difficulty learning new tasks and staying organized. Her physician recommended disability retirement.
+Example: Due to Alzheimer's disease, a project manager for an engineering firm was increasingly unable to keep track of and manage all of the individual components that were involved in the project.
+
+## Amputation
+Source: https://askjan.org/disabilities/Amputation.cfm
+**Key accommodations (JAN):**
+- Limiting lifting, reaching, pushing, and pulling by job restructuring
+- Using Proper Lifting Techniques
+- Reallocating lifting duties, if marginal
+- Providing assistance moving objects, to reduce weight
+- Organizing items in a way that reduces the need to move or lift items
+- Reducing weight to be lifted by separating items into smaller groups
+- Reassigning an employee to a modified duty position or modifying duties by removing the lifting duties
+- Periodic rest breaks to get up and move around
+- Modified break schedule so that you can stretch your legs when needed Using break reminder software to remember to get-up and move around
+- Alternating between sitting and standing while working by using a sit/stand workstation
+- Ergonomic/adjustable office chair
+- Work at home, where employee can lie down, sit, stand, move freely
+**Balancing:**
+- Bath Chairs
+- Canes
+- Crutches
+- Grab Bars
+- Personal Safety and Fall Alert Devices
+- Rollators and Rolling Walkers
+- Scooters
+- Stair Assists
+- Stair Lifts
+- Swing Away Grab Bars
+- Toileting Aids
+- Walkers
+- Walkers with Seats
+- All-Terrain Scooters
+- All-Terrain Wheelchairs
+- Personal Transportation and Mobility Products
+- Aerial Lifts
+- Fall Protection
+- Rolling Safety Ladders
+- Anti-fatigue Matting
+- Evacuation Devices
+**Bending:**
+- Adjustable Drafting Tables
+- Adjustable Exam Tables
+- Adjustable Massage Tables
+- Animal Lift Tables
+- Automatic Snow Chains
+- Battery Powered Lift Tables
+- Compact Material Handling
+- Convex Mirrors
+- Ergonomic and Pneumatic Tools
+- Examination and Procedures Chair
+- Long-Handled Mirrors
+- Low Task Chair
+- Manhole Cover Lifts
+- Pickups, Semis, and Heavy Equipment
+- Stools for Cutting Hair
+- Telescoping Cameras
+- Walk-up Changing Tables
+**Carrying:**
+- Accessories for Scooters
+- Adjustable Exam Tables
+- Aerial Lifts
+- Ball Transfer Tables
+- Carts
+- Compact Material Handling
+- Compact Mobile Cranes
+- Ergonomic Equipment
+- Evacuation Devices
+- Independent Living Aids
+- Lift Gates
+- Lifting Aids
+- Lightweight Ladders
+- Lightweight Lead Aprons
+- Manhole Cover Lifts
+- Modified Break Schedule
+- Multi-Purpose Carts
+- Patient Lifts (General)
+- Periodic Rest Breaks
+- Pickups, Semis, and Heavy Equipment
+- Spring-Loaded Carts
+- Stainless Steel Carts and Worktables
+- Stairclimbing Handtrucks
+- Test Tube Holders
+- Tire Handling
+- Transfer Aids
+- Transfer Sheets
+- Trashcans
+- Truck Mounted Cranes
+- Vacuum Lifts
+- Walk-up Changing Tables
+- Wheelchair Accessories
+- Winches and Chain Hoists
+**Effect of/Receive Medical Treatment:**
+- Augmentative and Alternative Communication (AAC) Device
+- Flexible Schedule
+- Outgoing Voice Amplification - Telephone
+- Personal On-Site Paging Devices
+- Protective Eyewear
+- Telework, Work from Home, Working Remotely
+- Voice Amplification
+**Feeling/Sensing:**
+- Aide/Assistant/Attendant
+- Alternative Input Devices
+- Alternative Keyboards
+- Alternative Mice
+- Anti-vibration Gloves
+- Anti-vibration Tool Wraps
+- Articulating Keyboard Trays
+- Automated Filing Systems
+- Book Holders
+- Cake Decorating and Baking Equipment
+- Deburring Tools
+- Electronic Organizers
+- Ergonomic and Pneumatic Tools
+- Expanded Keyboards
+- Forearm Support
+- Grip Aids
+- Hair Scissors
+- Handheld Computers (General)
+- Hands Free Resuscitation Devices
+- Keyguards
+- Light Switch Extension Handles
+- Lightweight Lead Aprons
+- Manhole Cover Lifts
+- Miniature Keyboards
+- On-Screen Keyboards
+- One-Handed Keyboard Software
+- One-Handed Keyboards
+- Page Turners
+- Periodic Rest Breaks
+- Pipettes
+- Professional Organizers
+- Protective Eyewear
+- Scribe/Notetaker
+- Speech Recognition Software
+- Talking Bar Code Scanner/Reader
+- Talking Money Identifier
+- Task Rotation
+- Test Tube Holders
+- Tool Balancers
+- Van Conversion
+- Writing Aids
+**Grasping:**
+- Compact Material Handling
+- Motorized Carts
+- Multi-Purpose Carts
+- Tool Balancers
+- Auto-dialers
+- Automated Filing Systems
+- Book Holders
+- Hands-free Telephones
+- Headsets
+- Left Hand-Dominant Keyboards
+- One-Handed Keyboards
+- Reachers
+- Writing Aids
+- Scribe/Notetaker
+- Aide/Assistant/Attendant
+- Money Handling Products
+- Mop Buckets
+- Mops and Mop Handles
+- Steering Grips
+**Handling/Fingering:**
+- Compact Material Handling
+- Ergonomic and Pneumatic Tools
+- Vacuum Pickup Tools
+- Alternative Input Devices
+- Alternative Keyboards
+- Alternative Mice
+- Book Holders
+- Ergonomic Equipment
+- On-Screen Keyboards
+- One-Handed Keyboards
+- Speech Recognition Software
+- Typing / Keyboarding Aids
+- Writing Aids
+- Aide/Assistant/Attendant
+- Money Handling Products
+- Periodic Rest Breaks
+**Lifting:**
+- Animal Lift Tables
+- Carts
+- Compact Mobile Cranes
+- Aerial Lifts
+- Ball Transfer Tables
+- Battery Powered Lift Tables
+- Engine Lifts and Lift Plates
+- Lift Gates
+- Lift Tables
+- Truck Mounted Cranes
+- Vacuum Lifts
+- Winches and Chain Hoists
+- Compact Material Handling
+- Ergonomic Assessments
+- Ergonomic Equipment
+- Drywall and Wallboard Lifts
+- Independent Living Aids
+- Job Restructuring
+- Lifters and Carriers for Mobility Aids
+- Lifting Aids
+- Periodic Rest Breaks
+- Adjustable Exam Tables
+- Adult Changing Tables
+- Large-Rated Wheelchair Lifts
+- Patient Lifts (General)
+- Pool Lifts
+- Powered Bath Lifts
+- Toileting Aids
+- Transfer Aids
+- Transfer Sheets
+- Wheelchair Lifts
+**Operating Foot Control:**
+- Adjustable Drafting Tables
+- Ergonomic and Pneumatic Tools
+- Foot Controls
+- Hand Controls
+- Joystick Driving Systems
+- Left-Foot Gas Pedal
+- Pedal Extenders
+**Pain:**
+- Adjustable Workstations for Industrial Settings
+- Anti-fatigue Matting
+- Carts
+- Ergonomic Assessments
+- Ergonomic Equipment
+- Wearable Anti-fatigue Matting
+- Adjustable Workstations for Office Settings
+- Alternative Keyboards
+- Alternative Mice
+- Automatic Door Openers
+- Ergonomic and Adjustable Office Chairs
+- Forearm Support
+- Gooseneck and Other Telephone Holders
+- Headsets
+- Scooters
+- Scribe/Notetaker
+- Speech Recognition Software
+- Stand-lean Stools
+- Supine Workstations
+- Worksite Redesign / Modified Workspace
+- Workstation Space Heaters
+- Writing Aids
+- Aide/Assistant/Attendant
+- Flexible Schedule
+- Modified Break Schedule
+- Service Animal
+- Telework, Work from Home, Working Remotely
+**Standing:**
+- Accessories for Scooters
+- Adjustable Drafting Tables
+- Adjustable Workstations for Industrial Settings
+- Adjustable Workstations for Office Settings
+- All-Terrain Scooters
+- Anti-fatigue Matting
+- Assist Lift Cushions
+- Elevating Lift and Office Chairs
+- Ergonomic and Pneumatic Tools
+- Examination and Procedures Chair
+- Flexible Schedule
+- Grab Bars
+- Handheld Computers (General)
+- Head Support for Wheelchairs
+- Low Task Chair
+- Periodic Rest Breaks
+- Proper Sitting / Standing Techniques
+- Scooters
+- Stair Assists
+- Stand Aids
+- Stand-lean Stools
+- Stand-up Wheelchairs
+- Stools for Cutting Hair
+- Van Conversion
+- Wearable Anti-fatigue Matting
+- Wheelchair Accessible Scales
+- Wheelchair Carts/Trailers
+- Wheelchair Mounts
+- Wheelchairs
+**Stress Intolerance:**
+- Apps for Anxiety and Stress
+- Behavior Modification Techniques
+- Counseling/Therapy
+- Environmental Sound Machines / Tinnitus Maskers / White Noise Machines
+- Flexible Schedule
+- Job Restructuring
+- Marginal Functions
+- Modified Break Schedule
+- Supervisory Methods
+- Support Animal
+- Support Person
+**Use of One Hand/Arm:**
+- Aide/Assistant/Attendant
+- Alternative Input Devices
+- Alternative Keyboards
+- Alternative Mice
+- Arm Prosthetics
+- Articulating Keyboard Trays
+- Auto-dialers
+- Automated Filing Systems
+- Automatic and Remote Control Blinds
+- Book Holders
+- Compact Material Handling
+- Dental and Surgical Instruments
+- Door Knob Grips and Handles
+- Electric Scissors
+- Ergonomic and Pneumatic Tools
+- Ergonomic Equipment
+- Ergonomic Knives
+- Ergonomic Scissors
+- Expanded Keyboards
+- Eye Controlled Alternative Computer Input Devices
+- File Carousels
+- Filing Trays
+- Forearm Support
+- Gardening Equipment
+- Gear Shift Adapter/Extension
+- Gooseneck and Other Telephone Holders
+- Graphics Design Software
+- Grip Aids
+- Grooming and Dressing Aids
+- Hands Free Resuscitation Devices
+- Hands-free Telephones
+- Headsets
+- Job Coaches
+- Job Restructuring
+- Keyguards
+- Left Hand-Dominant Keyboards
+- Miniature Keyboards
+- Money Handling Products
+- Mop Buckets
+- Mops and Mop Handles
+- Motorized Carts
+- Multi-Purpose Carts
+- On-Screen Keyboards
+- One-Hand Syringes
+- One-Handed Keyboard Software
+- One-Handed Keyboards
+- Page Turners
+- Patient Lifts (General)
+- Personal On-Site Paging Devices
+- Planting Aids
+- Reachers
+- Scribe/Notetaker
+- Shoulder Supports for Telephone Handsets
+- Speech Recognition Software
+- Steering Grips
+- Switches
+- Ten Keypads
+- Tongue Touch Keyboards/Mice
+- Tool Balancers
+- Typing / Keyboarding Aids
+- Vacuum Lifts
+- Vacuum Pickup Tools
+- Word Prediction/Completion and Macro Software
+- Writing Aids
+**Walking:**
+- Accessories for Scooters
+- Aide/Assistant/Attendant
+- All-Terrain Scooters
+- All-Terrain Wheelchairs
+- Anti-fatigue Matting
+- Boat Access
+- Ergonomic and Pneumatic Tools
+- Examination and Procedures Chair
+- Foldable / Transport Wheelchairs
+- Head Support for Wheelchairs
+- Large-Rated Scooters
+- Large-Rated Wheelchairs
+- Low Task Chair
+- Personal Transportation and Mobility Products
+- Reclining Wheelchairs
+- Rollators and Rolling Walkers
+- Scooters
+- Scooters for Small Stature
+- Stair Assists
+- Stools for Cutting Hair
+- Telework, Work from Home, Working Remotely
+- Van Conversion
+- Walkers
+- Walkers for Tall Individuals
+- Walkers with Seats
+- Wearable Anti-fatigue Matting
+- Wheelchair Accessible Scales
+- Wheelchair Carts/Trailers
+- Wheelchair Mounts
+- Wheelchairs
+- Wheelchairs for Small Stature
+- Worksite Redesign / Modified Workspace
+Example: An applicant, who had both of his legs amputated, uses a wheelchair to help him ambulate. The office building that he will be reporting to work in does not have an elevator and if he gets the position his workstation will be located on the third floor.
+Example: A child care worker with cancer had difficulty walking through a campus environment. The employee requested the ability to stay in one building. The employer contacted JAN for options. JAN suggested a mobility aid that the individual used solely for job functions.
+
+## Amyotrophic Lateral Sclerosis (ALS)/Lou Gehrig's Disease
+Source: https://askjan.org/disabilities/Amyotrophic-Lateral-Sclerosis-ALS-Lou-Gehrig-s-Disease.cfm
+**Decreased Stamina/Fatigue:**
+- Accessories for Scooters
+- Aide/Assistant/Attendant
+- All-Terrain Scooters
+- Anti-fatigue Matting
+- Elevating Wheelchairs
+- Ergonomic and Pneumatic Tools
+- Ergonomic Assessments
+- Ergonomic Equipment
+- Examination and Procedures Chair
+- Flexible Schedule
+- Head Support for Wheelchairs
+- Job Restructuring
+- Low Task Chair
+- Mechanic's Seats and Creepers
+- Multi-Purpose Carts
+- Periodic Rest Breaks
+- Scooters
+- Stand-lean Stools
+- Stools for Cutting Hair
+- Task Rotation
+- Telework, Work from Home, Working Remotely
+- Walkers
+- Wearable Anti-fatigue Matting
+- Wheelchair Accessible Scales
+- Wheelchair Mounts
+- Wheelchairs
+- Worksite Redesign / Modified Workspace
+**Overall Body Coordination:**
+- Canes
+- Convex Mirrors
+- Ergonomic and Pneumatic Tools
+- Long-Handled Mirrors
+- Personal Transportation and Mobility Products
+- Rollators and Rolling Walkers
+- Scooters
+- Telescoping Cameras
+- Walkers
+- Walkers with Seats
+**Overall Body Weakness/Strength:**
+- Aide/Assistant/Attendant
+- Grab Bars
+- Independent Living Aids
+- Personal Safety and Fall Alert Devices
+- Toileting Aids
+- Scooters
+- Walkers
+- Wheelchairs
+- Anti-fatigue Matting
+- Compact Material Handling
+- Ergonomic and Adjustable Office Chairs
+- Forearm Support
+- Multi-Purpose Carts
+- Stair Lifts
+- Stand-lean Stools
+- Wearable Anti-fatigue Matting
+- Worksite Redesign / Modified Workspace
+- Modified Break Schedule
+- Periodic Rest Breaks
+- Telework, Work from Home, Working Remotely
+**Spasm/Tic/Tremor/Blinking:**
+- Alternative Input Devices
+- Alternative Keyboards
+- Alternative Mice
+- Ergonomic Equipment
+- Expanded Keyboards
+- Forearm Support
+- Keyguards
+- On-Screen Keyboards
+- One-Handed Keyboards
+- Speech Recognition Software
+- Switches
+- Tongue Touch Keyboards/Mice
+- Typing / Keyboarding Aids
+- Word Prediction/Completion and Macro Software
+- Book Holders
+- Door Knob Grips and Handles
+- Eating Aids
+- Ergonomic and Pneumatic Tools
+- Extra Grip Gloves
+- Grip Aids
+- Money Handling Products
+- Page Turners
+- Scribe/Notetaker
+- Tool Balancers
+- Writing Aids
+- Compact Material Handling
+- Vacuum Lifts
+- Vacuum Pickup Tools
+- Aide/Assistant/Attendant
+- Job Restructuring
+- Padded Edging
+- Auto-dialers
+- Hands-free Telephones
+- Outgoing Voice Amplification - Telephone
+**Stress Intolerance:**
+- Apps for Anxiety and Stress
+- Behavior Modification Techniques
+- Counseling/Therapy
+- Environmental Sound Machines / Tinnitus Maskers / White Noise Machines
+- Flexible Schedule
+- Job Restructuring
+- Marginal Functions
+- Modified Break Schedule
+- Supervisory Methods
+- Support Animal
+- Support Person
+Example: A customer service representative for a financial institution had ALS. His symptoms were exacerbated by work-related stress caused by the noisy work environment and commuting to the workplace.
+Example: A clerk at a local government was experiencing weakening speech due to Lou Gehrig’s disease. Her job required her to communicate to coworkers and the public.
+
+## Anxiety Disorder
+Source: https://askjan.org/disabilities/Anxiety-Disorder.cfm
+- (no accommodation list found on page)
+
+## Arm Conditions
+Source: https://askjan.org/disabilities/Arm-Conditions.cfm
+**Carrying:**
+- Accessories for Scooters
+- Adjustable Exam Tables
+- Aerial Lifts
+- Ball Transfer Tables
+- Carts
+- Compact Material Handling
+- Compact Mobile Cranes
+- Ergonomic Equipment
+- Evacuation Devices
+- Independent Living Aids
+- Lift Gates
+- Lifting Aids
+- Lightweight Ladders
+- Lightweight Lead Aprons
+- Manhole Cover Lifts
+- Modified Break Schedule
+- Multi-Purpose Carts
+- Patient Lifts (General)
+- Periodic Rest Breaks
+- Pickups, Semis, and Heavy Equipment
+- Spring-Loaded Carts
+- Stainless Steel Carts and Worktables
+- Stairclimbing Handtrucks
+- Test Tube Holders
+- Tire Handling
+- Transfer Aids
+- Transfer Sheets
+- Trashcans
+- Truck Mounted Cranes
+- Vacuum Lifts
+- Walk-up Changing Tables
+- Wheelchair Accessories
+- Winches and Chain Hoists
+**Feeling/Sensing:**
+- Aide/Assistant/Attendant
+- Alternative Input Devices
+- Alternative Keyboards
+- Alternative Mice
+- Anti-vibration Gloves
+- Anti-vibration Tool Wraps
+- Articulating Keyboard Trays
+- Automated Filing Systems
+- Book Holders
+- Cake Decorating and Baking Equipment
+- Deburring Tools
+- Electronic Organizers
+- Ergonomic and Pneumatic Tools
+- Expanded Keyboards
+- Forearm Support
+- Grip Aids
+- Hair Scissors
+- Handheld Computers (General)
+- Hands Free Resuscitation Devices
+- Keyguards
+- Light Switch Extension Handles
+- Lightweight Lead Aprons
+- Manhole Cover Lifts
+- Miniature Keyboards
+- On-Screen Keyboards
+- One-Handed Keyboard Software
+- One-Handed Keyboards
+- Page Turners
+- Periodic Rest Breaks
+- Pipettes
+- Professional Organizers
+- Protective Eyewear
+- Scribe/Notetaker
+- Speech Recognition Software
+- Talking Bar Code Scanner/Reader
+- Talking Money Identifier
+- Task Rotation
+- Test Tube Holders
+- Tool Balancers
+- Van Conversion
+- Writing Aids
+**Fine Motor:**
+- Alternative Input Devices
+- Alternative Keyboards
+- Alternative Spray Can Holders/Guns
+- Anti-vibration Tool Wraps
+- Automated Filing Systems
+- Book Holders
+- Box Cutters
+- Dental and Surgical Instruments
+- Ergonomic and Pneumatic Tools
+- Ergonomic Equipment
+- Ergonomic Knives
+- Ergonomic Microscopes
+- Ergonomic Scissors
+- Expanded Keyboards
+- Extra Grip Gloves
+- Eye Controlled Alternative Computer Input Devices
+- Feet Controlled Alternative Computer Input Devices
+- Filing Trays
+- Gooseneck and Other Telephone Holders
+- Grip Aids
+- Handwriting Recognition Software
+- Head Controlled Alternative Computer Input Devices
+- Independent Living Aids
+- Miniature Keyboards
+- On-Screen Keyboards
+- One-Handed Keyboard Software
+- Proper Sitting / Standing Techniques
+- Robotic Arm
+- Speech Recognition Software
+- Steering Grips
+- Test Tube Holders
+- Tongue Touch Keyboards/Mice
+- Tool Balancers
+- Typing / Keyboarding Aids
+- Vacuum Pickup Tools
+- Word Prediction/Completion and Macro Software
+- Writing Aids
+**Handling/Fingering:**
+- Adjustable Drafting Tables
+- Adjustable Massage Tables
+- Aide/Assistant/Attendant
+- Alternative Input Devices
+- Alternative Keyboards
+- Alternative Mice
+- Alternative Spray Can Holders/Guns
+- Anti-vibration Gloves
+- Anti-vibration Tool Wraps
+- Articulating Keyboard Trays
+- Automated Filing Systems
+- Book Holders
+- Breath and Mouth Controlled Alternative Computer Input Devices
+- Cake Decorating and Baking Equipment
+- Compact Material Handling
+- Deburring Tools
+- Disposable Gloves for Small Hands
+- Electric Scissors
+- Electric Stapler
+- Electronic Organizers
+- Ergonomic and Pneumatic Tools
+- Ergonomic Equipment
+- Expanded Keyboards
+- Extra Grip Gloves
+- Forearm Support
+- Graphics Design Software
+- Grip Aids
+- Hair Scissors
+- Handheld Computers (General)
+- Height Adjustable Table Legs
+- Keyguards
+- Light Switch Extension Handles
+- Miniature Keyboards
+- Money Handling Products
+- On-Screen Keyboards
+- One-Handed Keyboards
+- Page Turners
+- Periodic Rest Breaks
+- Pipettes
+- Professional Organizers
+- Scribe/Notetaker
+- Speech Recognition Software
+- Talking Bar Code Scanner/Reader
+- Talking Money Identifier
+- Task Rotation
+- Test Tube Holders
+- Touchless Faucets
+- Typing / Keyboarding Aids
+- Vacuum Pickup Tools
+- Van Conversion
+- Wheelchair Trays
+- Writing Aids
+**Lifting:**
+- Adjustable Exam Tables
+- Adjustable Massage Tables
+- Adult Changing Tables
+- Aerial Lifts
+- Animal Lift Tables
+- Automated Filing Systems
+- Ball Transfer Tables
+- Bath Chairs
+- Battery Powered Lift Tables
+- Cake Decorating and Baking Equipment
+- Carts
+- Compact Material Handling
+- Compact Mobile Cranes
+- Drum Handling
+- Drywall and Wallboard Lifts
+- Electronic Organizers
+- Engine Lifts and Lift Plates
+- Ergonomic Assessments
+- Ergonomic Equipment
+- Evacuation Devices
+- Folding Steps
+- Hair Scissors
+- Hands Free Resuscitation Devices
+- Height Adjustable Table Legs
+- Independent Living Aids
+- Job Restructuring
+- Large-Rated Small Step Ladders
+- Large-Rated Wheelchair Lifts
+- Lift Gates
+- Lift Tables
+- Lifters and Carriers for Mobility Aids
+- Lifting Aids
+- Light Switch Extension Handles
+- Lightweight Lead Aprons
+- Low Task Chair
+- Manhole Cover Lifts
+- Multi-Purpose Carts
+- Patient Lifts (General)
+- Periodic Rest Breaks
+- Pickups, Semis, and Heavy Equipment
+- Pipettes
+- Pool Lifts
+- Portable Lifts
+- Power Lift IV Stands
+- Powered Bath Lifts
+- Professional Organizers
+- Proper Lifting Techniques
+- Rolling Safety Ladders
+- Spring-Loaded Carts
+- Stainless Steel Carts and Worktables
+- Stair Assists
+- Stairclimbing Handtrucks
+- Talking Bar Code Scanner/Reader
+- Test Tube Holders
+- Tire Handling
+- Toileting Aids
+- Tool Balancers
+- Transfer Aids
+- Transfer Sheets
+- Truck Mounted Cranes
+- Vacuum Lifts
+- Vacuum Pickup Tools
+- Vehicle Lifts and Manipulators
+- Walk-up Changing Tables
+- Wheelchair Lifts
+- Winches and Chain Hoists
+- Work Platforms
+**Pain:**
+- Accessories for Scooters
+- Adjustable Workstations for Industrial Settings
+- Adjustable Workstations for Office Settings
+- Aide/Assistant/Attendant
+- All-Terrain Scooters
+- Alternative Input Devices
+- Alternative Keyboards
+- Alternative Mice
+- Anti-fatigue Matting
+- Anti-vibration Gloves
+- Anti-vibration Seats
+- Anti-vibration Tool Wraps
+- Automated Filing Systems
+- Automatic Door Openers
+- Cake Decorating and Baking Equipment
+- Carts
+- Chairs with Head Support
+- Compact Material Handling
+- Electronic Organizers
+- Environmental Sound Machines / Tinnitus Maskers / White Noise Machines
+- Ergonomic and Adjustable Office Chairs
+- Ergonomic and Pneumatic Tools
+- Ergonomic Assessments
+- Ergonomic Equipment
+- Examination and Procedures Chair
+- Fans
+- Flexible Schedule
+- Forearm Support
+- Gooseneck and Other Telephone Holders
+- Hair Scissors
+- Head Support for Wheelchairs
+- Headsets
+- Light Switch Extension Handles
+- Low Task Chair
+- Mechanic's Seats and Creepers
+- Modified Break Schedule
+- Pickups, Semis, and Heavy Equipment
+- Pipettes
+- Professional Organizers
+- Scooters
+- Scribe/Notetaker
+- Service Animal
+- Speech Recognition Software
+- Spring-Loaded Carts
+- Stand-lean Stools
+- Stools for Cutting Hair
+- Strobe Lights
+- Supine Workstations
+- Talking Bar Code Scanner/Reader
+- Talking Money Identifier
+- Telescoping Cameras
+- Telework, Work from Home, Working Remotely
+- Van Conversion
+- Wearable Anti-fatigue Matting
+- Wheelchair Accessible Scales
+- Wheelchair Carts/Trailers
+- Wheelchair Mounts
+- Wheelchairs
+- Worksite Redesign / Modified Workspace
+- Workstation Space Heaters
+- Writing Aids
+**Pushing/Pulling:**
+- Adjustable Massage Tables
+- Automated Filing Systems
+- Automatic Door Openers
+- Ball Transfer Tables
+- Cart Dumpers
+- Carts
+- Compact Material Handling
+- Deburring Tools
+- Ergonomic and Pneumatic Tools
+- Ergonomic Equipment
+- Folding Steps
+- Hands Free Resuscitation Devices
+- Height Adjustable Table Legs
+- Janitorial Carts
+- Large-Rated Small Step Ladders
+- Lift Tables
+- Light Switch Extension Handles
+- Linen Carts
+- Motorized Carts
+- Multi-Purpose Carts
+- Patient Lifts (General)
+- Pickups, Semis, and Heavy Equipment
+- Power Assist for Manual Wheelchairs
+- Rolling Safety Ladders
+- Spring-Loaded Carts
+- Stainless Steel Carts and Worktables
+- Stair Assists
+- Stairclimbing Handtrucks
+- Tire Handling
+- Tool Balancers
+- Vacuum Lifts
+- Vacuum Pickup Tools
+- Wheelchair Push Bars
+- Wheelchair Push Extension Handles
+- Wheelchair Pushers
+**Reaching:**
+- Adjustable Massage Tables
+- Adjustable Workstations for Industrial Settings
+- Adjustable Workstations for Office Settings
+- Aerial Lifts
+- Convex Mirrors
+- Deburring Tools
+- Ergonomic and Pneumatic Tools
+- Ergonomic Assessments
+- Ergonomic Equipment
+- Folding Steps
+- Height Adjustable Table Legs
+- Independent Living Aids
+- Large-Rated Small Step Ladders
+- Lift Tables
+- Long-Handled Mirrors
+- Low Task Chair
+- Mechanic's Seats and Creepers
+- Periodic Rest Breaks
+- Power Lift IV Stands
+- Reachers
+- Rolling Safety Ladders
+- Stair Assists
+- Step Stools
+- Telescopic Handle Attachments
+- Vacuum Pickup Tools
+- Wheelchair Trays
+- Work Platforms
+Example: Products
+Example: Job Accommodation Network West Virginia University PO Box 6080 Morgantown, WV 26506-6080 Toll Free: (800) 526-7234 TTY: (304) 293-7186 jan@askjan.org https://askjan.org
+
+## Arthritis
+Source: https://askjan.org/disabilities/Arthritis.cfm
+**Key accommodations (JAN):**
+- Limiting lifting, reaching, pushing, and pulling by job restructuring
+- Extra time to complete paperwork
+- Voice to text software
+- Ability to dictate notes using a voice recorder and have another staff member input the notes (if inputting the information is a marginal function of your job)
+- Grip Aids , to help with holding a stylus
+- Reallocating documentation duties, if marginal
+- Handwriting Recognition Software
+- Reassignment
+- Using Proper Lifting Techniques
+- Reallocating lifting duties, if marginal
+- Providing assistance moving objects, to reduce weight
+- Organizing items in a way that reduces the need to move or lift items
+- Reducing weight to be lifted by separating items into smaller groups
+- Reassigning an employee to a modified duty position or modifying duties by removing the lifting duties
+- Periodic rest breaks to get up and move around
+- Modified break schedule so that you can stretch your legs when needed Using break reminder software to remember to get-up and move around
+- Alternating between sitting and standing while working by using a sit/stand workstation
+- Ergonomic/adjustable office chair
+- Work at home, where employee can lie down, sit, stand, move freely
+- Providing structured breaks as a physical outlet
+- Reducing stress triggers – these strategies will vary according to triggers, but see Dealing with Stress in the Workplace
+- Adjusting supervisory methods
+- Accessing EAP services for coping with stress
+- Providing a private workspace
+- Reducing distractions
+- Allowing breaks for mental fatigue, including short walks, getting up for a drink of water, and rotating through varied tasks
+- Allowing breaks to contact a support person when anxiety is triggered
+- Restructuring job so the most difficult tasks are performed at the time of day the employee has the most mental energy or stamina
+- Providing/designating uninterrupted time for tasks that require significant concentration
+- Telework, Work from Home, Working Remotely
+**Balancing:**
+- Bath Chairs
+- Canes
+- Crutches
+- Grab Bars
+- Personal Safety and Fall Alert Devices
+- Rollators and Rolling Walkers
+- Scooters
+- Stair Assists
+- Stair Lifts
+- Swing Away Grab Bars
+- Toileting Aids
+- Walkers with Seats
+- Walkers
+- All-Terrain Scooters
+- All-Terrain Wheelchairs
+- Personal Transportation and Mobility Products
+- Aerial Lifts
+- Fall Protection
+- Rolling Safety Ladders
+- Anti-fatigue Matting
+- Evacuation Devices
+- Padded Edging
+- Protective Eyewear
+**Decreased Stamina/Fatigue:**
+- Accessories for Scooters
+- Aide/Assistant/Attendant
+- All-Terrain Scooters
+- Anti-fatigue Matting
+- Elevating Wheelchairs
+- Ergonomic and Pneumatic Tools
+- Ergonomic Assessments
+- Ergonomic Equipment
+- Examination and Procedures Chair
+- Flexible Schedule
+- Head Support for Wheelchairs
+- Job Restructuring
+- Low Task Chair
+- Mechanic's Seats and Creepers
+- Multi-Purpose Carts
+- Periodic Rest Breaks
+- Scooters
+- Stand-lean Stools
+- Stools for Cutting Hair
+- Task Rotation
+- Telework, Work from Home, Working Remotely
+- Walkers
+- Wearable Anti-fatigue Matting
+- Wheelchair Accessible Scales
+- Wheelchair Mounts
+- Wheelchairs
+- Worksite Redesign / Modified Workspace
+**Grasping:**
+- Anti-vibration Gloves
+- Anti-vibration Tool Wraps
+- Compact Material Handling
+- Ergonomic and Pneumatic Tools
+- Ergonomic Knives
+- Motorized Carts
+- Multi-Purpose Carts
+- Tool Balancers
+- Auto-dialers
+- Automated Filing Systems
+- Book Holders
+- Door Knob Grips and Handles
+- Electric Scissors
+- Ergonomic Scissors
+- File Carousels
+- Filing Trays
+- Grip Aids
+- Hands-free Telephones
+- Headsets
+- Left Hand-Dominant Keyboards
+- One-Handed Keyboards
+- Page Turners
+- Reachers
+- Scribe/Notetaker
+- Shoulder Supports for Telephone Handsets
+- Writing Aids
+- Aide/Assistant/Attendant
+- Dental and Surgical Instruments
+- Money Handling Products
+- Mop Buckets
+- Mops and Mop Handles
+- Steering Grips
+**Handling/Fingering:**
+- Anti-vibration Gloves
+- Anti-vibration Tool Wraps
+- Compact Material Handling
+- Ergonomic and Pneumatic Tools
+- Ergonomic Equipment
+- Extra Grip Gloves
+- Grip Aids
+- Vacuum Pickup Tools
+- Alternative Input Devices
+- Alternative Keyboards
+- Alternative Mice
+- Articulating Keyboard Trays
+- Book Holders
+- Expanded Keyboards
+- Forearm Support
+- Keyguards
+- Miniature Keyboards
+- Writing Aids
+- Typing / Keyboarding Aids
+- Speech Recognition Software
+- Scribe/Notetaker
+- Page Turners
+- One-Handed Keyboards
+- On-Screen Keyboards
+- Aide/Assistant/Attendant
+- Money Handling Products
+- Periodic Rest Breaks
+**Lifting:**
+- Animal Lift Tables
+- Carts
+- Compact Mobile Cranes
+- Lift Gates
+- Aerial Lifts
+- Ball Transfer Tables
+- Battery Powered Lift Tables
+- Drum Handling
+- Engine Lifts and Lift Plates
+- Lift Tables
+- Rolling Safety Ladders
+- Stairclimbing Handtrucks
+- Truck Mounted Cranes
+- Vacuum Lifts
+- Vehicle Lifts and Manipulators
+- Winches and Chain Hoists
+- Work Platforms
+- Compact Material Handling
+- Ergonomic Assessments
+- Ergonomic Equipment
+- Height Adjustable Table Legs
+- Low Task Chair
+- Drywall and Wallboard Lifts
+- Independent Living Aids
+- Job Restructuring
+- Lifters and Carriers for Mobility Aids
+- Lifting Aids
+- Manhole Cover Lifts
+- Periodic Rest Breaks
+- Power Lift IV Stands
+- Proper Lifting Techniques
+- Adult Changing Tables
+- Adjustable Exam Tables
+- Bath Chairs
+- Evacuation Devices
+- Large-Rated Wheelchair Lifts
+- Patient Lifts (General)
+- Pool Lifts
+- Powered Bath Lifts
+- Toileting Aids
+- Transfer Aids
+- Transfer Sheets
+- Walk-up Changing Tables
+- Wheelchair Lifts
+**Overall Body Coordination:**
+- Canes
+- Convex Mirrors
+- Ergonomic and Pneumatic Tools
+- Long-Handled Mirrors
+- Personal Transportation and Mobility Products
+- Rollators and Rolling Walkers
+- Scooters
+- Telescoping Cameras
+- Walkers
+- Walkers with Seats
+**Pain:**
+- Adjustable Workstations for Industrial Settings
+- Anti-fatigue Matting
+- Anti-vibration Gloves
+- Anti-vibration Seats
+- Anti-vibration Tool Wraps
+- Carts
+- Ergonomic Equipment
+- Fans
+- Ergonomic Assessments
+- Stand-lean Stools
+- Wearable Anti-fatigue Matting
+- Workstation Space Heaters
+- Adjustable Workstations for Office Settings
+- Alternative Keyboards
+- Alternative Mice
+- Chairs with Head Support
+- Compact Material Handling
+- Forearm Support
+- Automatic Door Openers
+- Ergonomic and Adjustable Office Chairs
+- Gooseneck and Other Telephone Holders
+- Headsets
+- Scribe/Notetaker
+- Scooters
+- Speech Recognition Software
+- Supine Workstations
+- Worksite Redesign / Modified Workspace
+- Writing Aids
+- Aide/Assistant/Attendant
+- Service Animal
+- Flexible Schedule
+- Modified Break Schedule
+- Telework, Work from Home, Working Remotely
+**Photosensitivity:**
+- Alternative Lighting
+- Anti-Glare Filters for Fluorescent Lights
+- Cubicle Doors, Shields, and Shades
+- E-Ink Devices
+- Fluorescent Light Tube Covers
+- Full Spectrum or Natural Lighting Products
+- LED Light Filters
+- Light Filtering Glasses
+- Lighting Gel Filters
+- Sun/UV Protective Clothing
+- Vehicle Window Tinting and Shades
+**Sitting:**
+- Adjustable Drafting Tables
+- Adjustable Pedicure Chairs
+- Adjustable Workstations for Industrial Settings
+- Adjustable Workstations for Office Settings
+- Chairs and Stools for Medical Services
+- Clean Room Stools
+- Ergonomic and Adjustable Office Chairs
+- Ergonomic and Pneumatic Tools
+- Ergonomic Assessments
+- Ergonomic Equipment
+- Forward Leaning Chairs
+- Handheld Computers (General)
+- Headsets
+- Large-Rated Chairs
+- Low Task Chair
+- Lumbar Cushions
+- Periodic Rest Breaks
+- Proper Sitting / Standing Techniques
+- Stand-lean Stools
+- Stools for Cutting Hair
+- Supine Workstations
+- Treadmill / Pedal Workstations
+- Van Conversion
+**Sleeping/Stay Awake:**
+- Apps for Sleep/ Fatigue
+- Environmental Sound Machines / Tinnitus Maskers / White Noise Machines
+- Flexible Schedule
+- Modified Break Schedule
+- Sleep Alerting Devices
+- Strobe Lights
+**Standing:**
+- Accessories for Scooters
+- Adjustable Drafting Tables
+- Adjustable Workstations for Industrial Settings
+- Adjustable Workstations for Office Settings
+- All-Terrain Scooters
+- Anti-fatigue Matting
+- Assist Lift Cushions
+- Elevating Lift and Office Chairs
+- Ergonomic and Pneumatic Tools
+- Examination and Procedures Chair
+- Flexible Schedule
+- Grab Bars
+- Handheld Computers (General)
+- Head Support for Wheelchairs
+- Low Task Chair
+- Periodic Rest Breaks
+- Proper Sitting / Standing Techniques
+- Scooters
+- Stair Assists
+- Stand Aids
+- Stand-lean Stools
+- Stand-up Wheelchairs
+- Stools for Cutting Hair
+- Van Conversion
+- Wearable Anti-fatigue Matting
+- Wheelchair Accessible Scales
+- Wheelchair Carts/Trailers
+- Wheelchair Mounts
+- Wheelchairs
+**Stress Intolerance:**
+- Apps for Anxiety and Stress
+- Behavior Modification Techniques
+- Counseling/Therapy
+- Environmental Sound Machines / Tinnitus Maskers / White Noise Machines
+- Flexible Schedule
+- Job Restructuring
+- Marginal Functions
+- Modified Break Schedule
+- Supervisory Methods
+- Support Animal
+- Support Person
+**Temperature Sensitivity:**
+- Air Deflectors
+- Cold Resistant Gloves
+- Cooling Clothing
+- Fans
+- Flexible Schedule
+- Heated Clothing
+- Heated Ergonomic and Computer Products
+- Heated Gloves
+- Portable Air Conditioners
+- Telework, Work from Home, Working Remotely
+- Vent Covers
+- Workstation Space Heaters
+**Walking:**
+- Scooters
+- Walkers
+- Wheelchairs
+Example: A customer service representative with arthritis had difficulty typing for long periods. The individual was accommodated with an ergonomic keyboard and tablet computer.
+Example: A library assistant was limited in her ability to stand for long periods due to arthritis. To assist her when standing, the employer purchased a stand/lean stool.
+
+## Ataxia
+Source: https://askjan.org/disabilities/Ataxia.cfm
+**Decreased Stamina/Fatigue:**
+- Accessories for Scooters
+- Aide/Assistant/Attendant
+- All-Terrain Scooters
+- Anti-fatigue Matting
+- Elevating Wheelchairs
+- Ergonomic and Pneumatic Tools
+- Ergonomic Assessments
+- Ergonomic Equipment
+- Examination and Procedures Chair
+- Flexible Schedule
+- Head Support for Wheelchairs
+- Job Restructuring
+- Low Task Chair
+- Mechanic's Seats and Creepers
+- Multi-Purpose Carts
+- Periodic Rest Breaks
+- Scooters
+- Stand-lean Stools
+- Stools for Cutting Hair
+- Task Rotation
+- Telework, Work from Home, Working Remotely
+- Walkers
+- Wearable Anti-fatigue Matting
+- Wheelchair Accessible Scales
+- Wheelchair Mounts
+- Wheelchairs
+- Worksite Redesign / Modified Workspace
+**Handling/Fingering:**
+- Anti-vibration Gloves
+- Anti-vibration Tool Wraps
+- Compact Material Handling
+- Ergonomic and Pneumatic Tools
+- Ergonomic Equipment
+- Extra Grip Gloves
+- Grip Aids
+- Vacuum Pickup Tools
+- Alternative Input Devices
+- Alternative Keyboards
+- Alternative Mice
+- Articulating Keyboard Trays
+- Book Holders
+- Expanded Keyboards
+- Forearm Support
+- Keyguards
+- Miniature Keyboards
+- One-Handed Keyboards
+- On-Screen Keyboards
+- Page Turners
+- Scribe/Notetaker
+- Speech Recognition Software
+- Typing / Keyboarding Aids
+- Writing Aids
+- Aide/Assistant/Attendant
+- Money Handling Products
+- Periodic Rest Breaks
+**Standing:**
+- Accessories for Scooters
+- Adjustable Drafting Tables
+- Adjustable Workstations for Industrial Settings
+- Adjustable Workstations for Office Settings
+- All-Terrain Scooters
+- Anti-fatigue Matting
+- Assist Lift Cushions
+- Elevating Lift and Office Chairs
+- Ergonomic and Pneumatic Tools
+- Examination and Procedures Chair
+- Flexible Schedule
+- Grab Bars
+- Handheld Computers (General)
+- Head Support for Wheelchairs
+- Low Task Chair
+- Periodic Rest Breaks
+- Proper Sitting / Standing Techniques
+- Scooters
+- Stair Assists
+- Stand Aids
+- Stand-lean Stools
+- Stand-up Wheelchairs
+- Stools for Cutting Hair
+- Van Conversion
+- Wearable Anti-fatigue Matting
+- Wheelchair Accessible Scales
+- Wheelchair Carts/Trailers
+- Wheelchair Mounts
+- Wheelchairs
+**Stress Intolerance:**
+- Apps for Anxiety and Stress
+- Behavior Modification Techniques
+- Counseling/Therapy
+- Environmental Sound Machines / Tinnitus Maskers / White Noise Machines
+- Flexible Schedule
+- Job Restructuring
+- Marginal Functions
+- Modified Break Schedule
+- Supervisory Methods
+- Support Animal
+- Support Person
+**Toileting/Grooming Issue:**
+- Accessible Toilets and Toilet Seats
+- Aide/Assistant/Attendant
+- Flexible Schedule
+- Grab Bars - Toilet Hinged Arm Support
+- Grooming and Dressing Aids
+- Independent Living Aids
+- Modified Break Schedule
+- Swing Away Grab Bars
+- Telework, Work from Home, Working Remotely
+- Toileting Aids
+- Transfer Aids
+- Transfer Sheets
+- Worksite Redesign / Modified Workspace
+**Walking:**
+- Scooters
+- Walkers
+- Wheelchairs
+Example: A bakery employee with ataxia was stumbling during her shift. She was self-accommodating with a store shopping cart, but space was limited. The employer purchased a small rollator to help the employee maintain balance while working.
+Example: A newspaper reporter with ataxia had difficulty taking notes and processing auditory input during interviews. The employee had been using recording devices, but called JAN looking for more ideas.
+
+## Attention Deficit/Hyperactivity Disorder (ADHD)
+Source: https://askjan.org/disabilities/Attention-Deficit-Hyperactivity-Disorder-AD-HD.cfm
+**Key accommodations (JAN):**
+- Hyperactivity/ Impulsivity: For individuals with ADHD, accommodations for hyperactivity/impulsivity might be beneficial.
+- Provide structured breaks as a physical outlet
+- Utilize a job coach to teach/reinforce techniques
+- Allow the employee to work from home
+- Review conduct policy with employee
+- Adjust method of supervision
+- Use services of EAP
+- Provide private workspace
+- Focus/Concentration: For individuals with ADHD, accommodations minimizing distractions might be improve performance.
+- Provide a quiet work space
+- Allow use of noise cancellation or white noise
+- Work from home if no effective accommodations in office environment
+- Uninterrupted work time
+- Taking allotted breaks as needed
+- Minimizing marginal functions to allow focus on essential job duties
+- Time management: For individuals with ADHD, accommodations assisting with staying on task is often helpful
+- Assign a mentor
+- Provide to-do lists
+- Meetings to discuss expectations
+- Assistance with prioritization
+- Assistive technology (timers, apps, calendars, etc)
+- Getting to Work on Time: For individuals with ADHD, getting to work on time can often be difficult.
+- Have a routine of putting/keeping things in place
+- Prepare for the next day’s work the night before
+- Create checklists for yourself and others
+- Place sticky notes where you will see them
+- Turn off distractions – including cell phones
+- Use a timer or programmable watch to pace self
+**Attentiveness/Concentration:**
+- Alternative Lighting
+- Applications (apps)
+- Apps for Memory
+- Cubicle Doors, Shields, and Shades
+- Electronic Organizers
+- Environmental Sound Machines / Tinnitus Maskers / White Noise Machines
+- Full Spectrum or Natural Lighting Products
+- Noise Canceling Headsets
+- Sound Absorption and Sound Proof Panels
+- Timers and Watches
+- Calendars and Planners
+- Behavior Modification Techniques
+- Job Coaches
+- Color Coded System
+- Flexible Schedule
+- Job Restructuring
+- Marginal Functions
+- Modified Break Schedule
+- Task Separation
+- Telework, Work from Home, Working Remotely
+- Uninterrupted "Off" Work Time
+- Verbal Cues
+- Worksite Redesign / Modified Workspace
+- Written Instructions
+**Disruptive Behavior:**
+- Apps for Miscellaneous Mental Health / Control of Anger & Emotions
+- Cubicle Doors, Shields, and Shades
+- Environmental Sound Machines / Tinnitus Maskers / White Noise Machines
+- Noise Canceling Headsets
+- Behavior Modification Techniques
+- Disability Awareness/Etiquette Training
+- Employee Assistance Program
+- Support Animal
+- Counseling/Therapy
+- Flexible Schedule
+- Habit Monitoring
+- Job Restructuring
+- On-site Mentoring
+- Periodic Rest Breaks
+- Reminders
+- Supervisory Methods
+- Support Person
+- Telework, Work from Home, Working Remotely
+- Training Modifications
+- Worksite Redesign / Modified Workspace
+- Written Instructions
+**Executive Functioning Deficits:**
+- Apps for Concentration
+- Cubicle Doors, Shields, and Shades
+- Environmental Sound Machines / Tinnitus Maskers / White Noise Machines
+- Form Generating Software
+- Noise Canceling Headsets
+- Recorded Directives, Messages, Materials
+- Sound Absorption and Sound Proof Panels
+- Speech Recognition Software
+- Timers and Watches
+- Calendars and Planners
+- Job Coaches
+- Checklists
+- Color Coded System
+- Job Restructuring
+- Marginal Functions
+- Modified Break Schedule
+- Written Instructions
+**Managing Time:**
+- Applications (apps)
+- Apps for Organization/ Time Management
+- Electronic Organizers
+- PDAs, Notetakers, and Laptops
+- Timers and Watches
+- Calendars and Planners
+- Checklists
+- Color Coded System
+- Marginal Functions
+- Reminders
+- Task Separation
+- Written Instructions
+**Memory Loss:**
+- Apps for Memory
+- Electronic Organizers
+- Calendars and Planners
+- Additional Training Time / Training Refreshers
+- Color Coded System
+- Reminders
+- Support Person
+- Verbal Cues
+- Written Instructions
+**Multitasking:**
+- Ergonomic Equipment
+- Additional Training Time / Training Refreshers
+- Performance Standards Review
+- Supervisory Feedback
+- Task Identification
+- Task Separation
+**Organizing/Planning/Prioritizing:**
+- Applications (apps)
+- Apps for Organization/ Time Management
+- Electronic Organizers
+- Ergonomic Equipment
+- Organization Software
+- Timers and Watches
+- Calendars and Planners
+- Job Coaches
+- Professional Organizers
+- Color-coded Manuals, Outlines, and Maps
+- Job Restructuring
+- On-site Mentoring
+- Reminders
+- Supervisory Methods
+- Task Identification
+- Task Rotation
+- Task Separation
+- Written Instructions
+**Social Skills:**
+- Supervisory Methods
+- On-site Mentoring
+- Employee Assistance Program
+- Job Coaches
+- Positive Feedback
+- Tangible Rewards
+- Visual Performance Charts
+- Disability Awareness/Etiquette Training
+- One-on-One Communication
+**Stress Intolerance:**
+- Apps for Anxiety and Stress
+- Behavior Modification Techniques
+- Counseling/Therapy
+- Environmental Sound Machines / Tinnitus Maskers / White Noise Machines
+- Flexible Schedule
+- Job Restructuring
+- Marginal Functions
+- Modified Break Schedule
+- Supervisory Methods
+- Support Animal
+- Support Person
+Example: A delivery person with AD/HD had difficulty with time management. She spent excessive time making deliveries and would forget to return to the warehouse between daily runs.
+Example: A journalist with ADHD experienced sensitivity to visual and auditory distractions. The employer provided the individual with a private, high -wall cubicle workspace in a low-traffic area. The employer added an environmental sound machine to mask office noise.
+
+## Auditory Processing Disorder
+Source: https://askjan.org/disabilities/Auditory-Processing-Disorder.cfm
+- Auditory Distractions: assess audible distractions; rearrange or relocate the workspace; hang sound absorption panels; keep non-work conversations out of the work area; allow telework if appropriate
+- Meetings/Training: consider background noise/voices in the environment; minimize auditory distractions; provide assistive listening devices (ALD); allow preferential seating; provide written agendas in advance; provide materials in alternative formats; provide printed minutes; put instructions and communications in writing; follow up verbal communications in writing; allow use of a recorder/apps; allow ample time for responses to oral communications/questions; demonstrate and explain new information and tasks
+- Communication: consider the environment and background noise; minimize distractions; slow the rate of speech; simplify or minimize verbal communication/instructions and follow up in writing; allow written communication such as emails and texts; allow ample time to respond to verbal communication/questions; encourage the employee to question/repeat back information received; be patient
+
+## Autism Spectrum
+Source: https://askjan.org/disabilities/Autism-Spectrum.cfm
+**Attentiveness/Concentration:**
+- Alternative Lighting
+- Applications (apps)
+- Apps for Concentration
+- Cubicle Doors, Shields, and Shades
+- Desk Pedal Exercisers
+- Electronic Organizers
+- Environmental Sound Machines / Tinnitus Maskers / White Noise Machines
+- Fidget Devices
+- Full Spectrum or Natural Lighting Products
+- Noise Abatement
+- Noise Canceling Earbuds
+- Noise Canceling Headsets
+- Simulated Skylights and Windows
+- Sound Absorption and Sound Proof Panels
+- Sun Boxes and Lights
+- Sun Simulating Desk Lamps
+- Timers and Watches
+- Calendars and Planners
+- Job Coaches
+- Behavior Modification Techniques
+- Color Coded System
+- Flexible Schedule
+- Job Restructuring
+- Marginal Functions
+- Modified Break Schedule
+- Task Separation
+- Telework, Work from Home, Working Remotely
+- Uninterrupted "Off" Work Time
+- Verbal Cues
+- Worksite Redesign / Modified Workspace
+- Written Instructions
+**Executive Functioning Deficits:**
+- Apps for Concentration
+- Apps for Memory
+- Calendars and Planners
+- Checklists
+- Color Coded System
+- Cubicle Doors, Shields, and Shades
+- Environmental Sound Machines / Tinnitus Maskers / White Noise Machines
+- Extra Time
+- Flexible Schedule
+- Form Generating Software
+- Full Spectrum or Natural Lighting Products
+- Job Coaches
+- Job Restructuring
+- Marginal Functions
+- Modified Break Schedule
+- Noise Canceling Earbuds
+- Noise Canceling Headsets
+- On-site Mentoring
+- Recorded Directives, Messages, Materials
+- Reminders
+- Sound Absorption and Sound Proof Panels
+- Speech Recognition Software
+- Sun Boxes and Lights
+- Sun Simulating Desk Lamps
+- Timers and Watches
+- Written Instructions
+**Managing Time:**
+- Applications (apps)
+- Apps for Organization/ Time Management
+- Electronic Organizers
+- Fitness Trackers
+- PDAs, Notetakers, and Laptops
+- Smart Watches
+- Timers and Watches
+- Calendars and Planners
+- Job Coaches
+- Additional Training Time / Training Refreshers
+- Checklists
+- Color-coded Manuals, Outlines, and Maps
+- Color Coded System
+- Extra Time
+- Marginal Functions
+- Reminders
+- Recorded Directives, Messages, Materials
+- Supervisory Methods
+- Support Person
+- Task Separation
+- Verbal Cues
+- Written Forms and Prompts
+- Written Instructions
+**Memory Loss:**
+- Apps for Memory
+- Break Reminder Software
+- Electronic Organizers
+- Form Generating Software
+- Medication Reminders
+- Notepad or White Board
+- On-Screen "Ruler" / Strip
+- Timers and Watches
+- Calendars and Planners
+- Additional Training Time / Training Refreshers
+- Checklists
+- Color-coded Manuals, Outlines, and Maps
+- Color Coded System
+- Extra Time
+- Recorded Directives, Messages, Materials
+- Reminders
+- Supervisory Methods
+- Support Person
+- Task Separation
+- Verbal Cues
+- Voice Recorders
+- Written Forms and Prompts
+- Written Instructions
+**Noise Sensitivity:**
+- Alerting Devices
+- Communicate Another Way
+- Communication Access Technologies
+- Fans
+- Hearing Protection
+- Noise Abatement
+- Noise Canceling Earbuds
+- Noise Canceling Headsets
+- Real-time and Off-line Captioning Services
+- Sound Absorption and Sound Proof Panels
+- Worksite Redesign / Modified Workspace
+**Organizing/Planning/Prioritizing:**
+- Apps for Organization/ Time Management
+- Electronic Organizers
+- Ergonomic Equipment
+- Note Collection Software and Technology
+- Notepad or White Board
+- Organization Software
+- Timers and Watches
+- Calendars and Planners
+- Workflow Management Software
+- Job Coaches
+- Professional Organizers
+- Additional Training Time / Training Refreshers
+- Checklists
+- Color Coded System
+- Color-coded Manuals, Outlines, and Maps
+- Job Restructuring
+- Marginal Functions
+- On-site Mentoring
+- Organization/Prioritization Skills
+- Recorded Directives, Messages, Materials
+- Reminders
+- Supervisory Methods
+- Task Identification
+- Task Separation
+- Written Instructions
+**Photosensitivity:**
+- Alternative Lighting
+- Anti-Glare Filters for Fluorescent Lights
+- Anti-Glare/Radiation Filters for Computer Screens
+- Blue Light Filters
+- Cubicle Doors, Shields, and Shades
+- Fluorescent Light Tube Covers
+- Full Spectrum or Natural Lighting Products
+- LED Light Filters
+- Light Filtering Glasses
+- Lighting Gel Filters
+- Non-Fluorescent Lighting
+- Sun/UV Protective Clothing
+- Vehicle Window Tinting and Shades
+**Respiratory Distress/Breathing Problem:**
+- Air Cleaners & Purifiers
+- Air Cleaners - Chemical/Odor Removal
+- Air Cleaning Systems
+- Air Purifiers for Multiple Chemical Sensitivity
+- Alternative Cleaning Supplies
+- Augmentative and Alternative Communication (AAC) Device
+- Carpet Alternatives, Sealants, and Sustainable Flooring
+- Escape Hoods
+- Flexible Schedule
+- Floor Cleaning/Stripping Products - Chemical Sensitivity
+- Low/No Odor Paints and Stains
+- Mask Brackets and Frames
+- Masks - Respirator
+- Masks – General/Chemical/Allergen
+- Odor Control
+- Outgoing Voice Amplification - Telephone
+- Personal Air Cleaner (Neckworn)
+- Personal On-Site Paging Devices
+- Powered Air Purifying Respirator (PAPR)
+- Telework, Work from Home, Working Remotely
+- Voice Amplification
+**Stress Intolerance:**
+- Apps for Anxiety and Stress
+- Environmental Sound Machines / Tinnitus Maskers / White Noise Machines
+- Fitness Trackers
+- Simulated Skylights and Windows
+- Sun Boxes and Lights
+- Sun Simulating Desk Lamps
+- Counseling/Therapy
+- Employee Assistance Program
+- Behavior Modification Techniques
+- Communicate Another Way
+- Flexible Schedule
+- Instant Messaging and Texting Solutions for Businesses
+- Job Restructuring
+- Marginal Functions
+- Modified Break Schedule
+- On-site Mentoring
+- One-on-One Communication
+- Policy Modification
+- Positive Feedback
+- Supervisory Feedback
+- Supervisory Methods
+- Support Animal
+- Support Person
+- Telepresence
+- Telework, Work from Home, Working Remotely
+Example: An applicant on the autism spectrum applied for a research position with a chemical company. He has a verbal communication deficit, though can commu nicate through handwriting and by e-mail.
+Example: An employee on the autism spectrum works for a large marketing firm. Though knowledgeable in her field, she had difficulty participating in work activities with her team.
+
+## Back Impairment
+Source: https://askjan.org/disabilities/Back-Impairment.cfm
+**Carrying:**
+- Adjustable Exam Tables
+- Patient Lifts (General)
+- Transfer Aids
+- Transfer Sheets
+- Aerial Lifts
+- Ball Transfer Tables
+- Carts
+- Compact Material Handling
+- Compact Mobile Cranes
+- Lightweight Ladders
+- Stairclimbing Handtrucks
+- Truck Mounted Cranes
+- Vacuum Lifts
+- Winches and Chain Hoists
+- Accessories for Scooters
+- Ergonomic Equipment
+- Evacuation Devices
+- Independent Living Aids
+- Lift Gates
+- Lifting Aids
+- Modified Break Schedule
+- Periodic Rest Breaks
+- Walk-up Changing Tables
+- Wheelchair Accessories
+**Climbing:**
+- Aerial Lifts
+- Boat Access
+- Coach Steps
+- Compact Ladders
+- Elevators
+- Evacuation Devices
+- Extended Tractor Steps
+- Folding Steps
+- Ladders (General)
+- Large-Rated Ladders
+- Large-Rated Small Step Ladders
+- Large-Rated Wheelchair Lifts
+- Lightweight Ladders
+- Pool Lifts
+- Rolling Safety Ladders
+- Stair Assists
+- Stair Lifts
+**Decreased Stamina/Fatigue:**
+- Accessories for Scooters
+- Aide/Assistant/Attendant
+- All-Terrain Scooters
+- Anti-fatigue Matting
+- Elevating Wheelchairs
+- Ergonomic and Pneumatic Tools
+- Ergonomic Assessments
+- Ergonomic Equipment
+- Examination and Procedures Chair
+- Flexible Schedule
+- Head Support for Wheelchairs
+- Job Restructuring
+- Low Task Chair
+- Mechanic's Seats and Creepers
+- Multi-Purpose Carts
+- Periodic Rest Breaks
+- Scooters
+- Stand-lean Stools
+- Stools for Cutting Hair
+- Task Rotation
+- Telework, Work from Home, Working Remotely
+- Walkers
+- Wearable Anti-fatigue Matting
+- Wheelchair Accessible Scales
+- Wheelchair Mounts
+- Wheelchairs
+- Worksite Redesign / Modified Workspace
+**Lifting:**
+- Animal Lift Tables
+- Carts
+- Compact Mobile Cranes
+- Aerial Lifts
+- Ball Transfer Tables
+- Battery Powered Lift Tables
+- Drum Handling
+- Engine Lifts and Lift Plates
+- Lift Gates
+- Lift Tables
+- Rolling Safety Ladders
+- Stairclimbing Handtrucks
+- Truck Mounted Cranes
+- Vacuum Lifts
+- Vehicle Lifts and Manipulators
+- Winches and Chain Hoists
+- Work Platforms
+- Compact Material Handling
+- Ergonomic Assessments
+- Ergonomic Equipment
+- Height Adjustable Table Legs
+- Low Task Chair
+- Drywall and Wallboard Lifts
+- Independent Living Aids
+- Job Restructuring
+- Lifters and Carriers for Mobility Aids
+- Lifting Aids
+- Manhole Cover Lifts
+- Periodic Rest Breaks
+- Power Lift IV Stands
+- Proper Lifting Techniques
+- Adjustable Exam Tables
+- Adult Changing Tables
+- Bath Chairs
+- Evacuation Devices
+- Large-Rated Wheelchair Lifts
+- Patient Lifts (General)
+**Pain:**
+- Adjustable Workstations for Industrial Settings
+- Anti-fatigue Matting
+- Anti-vibration Gloves
+- Anti-vibration Seats
+- Anti-vibration Tool Wraps
+- Carts
+- Ergonomic Assessments
+- Ergonomic Equipment
+- Fans
+- Stand-lean Stools
+- Wearable Anti-fatigue Matting
+- Workstation Space Heaters
+- Adjustable Workstations for Office Settings
+- Alternative Keyboards
+- Alternative Mice
+- Automatic Door Openers
+- Chairs with Head Support
+- Compact Material Handling
+- Ergonomic and Adjustable Office Chairs
+- Forearm Support
+- Gooseneck and Other Telephone Holders
+- Headsets
+- Scribe/Notetaker
+- Scooters
+- Speech Recognition Software
+- Supine Workstations
+- Worksite Redesign / Modified Workspace
+- Writing Aids
+- Aide/Assistant/Attendant
+- Flexible Schedule
+- Modified Break Schedule
+- Service Animal
+- Telework, Work from Home, Working Remotely
+**Pushing/Pulling:**
+- Adjustable Massage Tables
+- Automated Filing Systems
+- Automatic Door Openers
+- Ball Transfer Tables
+- Cart Dumpers
+- Carts
+- Compact Material Handling
+- Deburring Tools
+- Ergonomic and Pneumatic Tools
+- Ergonomic Equipment
+- Folding Steps
+- Hands Free Resuscitation Devices
+- Height Adjustable Table Legs
+- Janitorial Carts
+- Large-Rated Small Step Ladders
+- Lift Tables
+- Light Switch Extension Handles
+- Linen Carts
+- Motorized Carts
+- Multi-Purpose Carts
+- Patient Lifts (General)
+- Pickups, Semis, and Heavy Equipment
+- Power Assist for Manual Wheelchairs
+- Rolling Safety Ladders
+- Spring-Loaded Carts
+- Stainless Steel Carts and Worktables
+- Stair Assists
+- Stairclimbing Handtrucks
+- Tire Handling
+- Tool Balancers
+- Vacuum Lifts
+- Vacuum Pickup Tools
+- Wheelchair Push Bars
+- Wheelchair Push Extension Handles
+- Wheelchair Pushers
+**Sitting:**
+- Adjustable Drafting Tables
+- Adjustable Pedicure Chairs
+- Adjustable Workstations for Industrial Settings
+- Adjustable Workstations for Office Settings
+- Chairs and Stools for Medical Services
+- Clean Room Stools
+- Ergonomic and Adjustable Office Chairs
+- Ergonomic and Pneumatic Tools
+- Ergonomic Assessments
+- Ergonomic Equipment
+- Forward Leaning Chairs
+- Handheld Computers (General)
+- Headsets
+- Large-Rated Chairs
+- Low Task Chair
+- Lumbar Cushions
+- Periodic Rest Breaks
+- Proper Sitting / Standing Techniques
+- Stand-lean Stools
+- Stools for Cutting Hair
+- Supine Workstations
+- Treadmill / Pedal Workstations
+- Van Conversion
+**Standing:**
+- Accessories for Scooters
+- Adjustable Drafting Tables
+- Adjustable Workstations for Industrial Settings
+- Adjustable Workstations for Office Settings
+- All-Terrain Scooters
+- Anti-fatigue Matting
+- Assist Lift Cushions
+- Elevating Lift and Office Chairs
+- Ergonomic and Pneumatic Tools
+- Examination and Procedures Chair
+- Flexible Schedule
+- Grab Bars
+- Handheld Computers (General)
+- Head Support for Wheelchairs
+- Low Task Chair
+- Periodic Rest Breaks
+- Proper Sitting / Standing Techniques
+- Scooters
+- Stair Assists
+- Stand Aids
+- Stand-lean Stools
+- Stand-up Wheelchairs
+- Stools for Cutting Hair
+- Van Conversion
+- Wearable Anti-fatigue Matting
+- Wheelchair Accessible Scales
+- Wheelchair Carts/Trailers
+- Wheelchair Mounts
+- Wheelchairs
+**Walking:**
+- Accessories for Scooters
+- Aide/Assistant/Attendant
+- All-Terrain Scooters
+- All-Terrain Wheelchairs
+- Anti-fatigue Matting
+- Boat Access
+- Ergonomic and Pneumatic Tools
+- Examination and Procedures Chair
+- Foldable / Transport Wheelchairs
+- Head Support for Wheelchairs
+- Large-Rated Scooters
+- Large-Rated Wheelchairs
+- Low Task Chair
+- Personal Transportation and Mobility Products
+- Reclining Wheelchairs
+- Rollators and Rolling Walkers
+- Scooters
+- Scooters for Small Stature
+- Stair Assists
+- Stools for Cutting Hair
+- Telework, Work from Home, Working Remotely
+- Van Conversion
+- Walkers
+- Walkers for Tall Individuals
+- Walkers with Seats
+- Wearable Anti-fatigue Matting
+- Wheelchair Accessible Scales
+- Wheelchair Carts/Trailers
+- Wheelchair Mounts
+- Wheelchairs
+- Wheelchairs for Small Stature
+- Worksite Redesign / Modified Workspace
+Example: A volunteer at a food bank had a lifting restriction from a back condition and had trouble moving heavy donation deliveries to the sorting area. A supply of small containers was provided so he could divide the deliveries into smaller amounts for sorting.
+Example: A meat processor with a back impairment had difficulty lifting and carrying materials from a storage area to their work area. The employee was accommodated with a lift.
+
+## Bipolar Disorder
+Source: https://askjan.org/disabilities/Bipolar-Disorder.cfm
+- (no accommodation list found on page)
+
+## Bladder Impairment
+Source: https://askjan.org/disabilities/Bladder-Impairment.cfm
+- Decreased Stamina/Fatigue: aide/assistant/attendant; job restructuring; periodic rest breaks; telework/work from home/working remotely; worksite redesign/modified workspace
+- Effect of/Receive Medical Treatment: flexible schedule; telework/work from home/working remotely
+- Toileting/Grooming Issue: accessible toilets and toilet seats; aide/assistant/attendant; flexible schedule; grab bars (toilet hinged arm support, swing away); grooming and dressing aids; independent living aids; modified break schedule; telework/work from home/working remotely; toileting aids; transfer aids; transfer sheets; worksite redesign/modified workspace
+- Work-Related Functions (Commute): flexible schedule; ridesharing/carpooling; telework/work from home/working remotely; transportation assistance; van conversion
+Example: An employee with incontinence having accidents at work was allowed to keep a change of clothes at the office plus additional restroom breaks. (Also: employee with interstitial cystitis needing the restroom hourly got the break policy modified just for her.)
+
+## Bleeding Disorder
+Source: https://askjan.org/disabilities/Bleeding-Disorder.cfm
+- Decreased Stamina/Fatigue: aide/assistant/attendant; anti-fatigue matting; ergonomic equipment; flexible schedule; job restructuring; periodic rest breaks; stand-lean stools; task rotation; telework/work from home/working remotely; worksite redesign/modified workspace
+- Overall Body Weakness/Strength: aide/assistant/attendant; ergonomic equipment; lift tables; modified break schedule; periodic rest breaks; telework/work from home/working remotely; worksite redesign/modified workspace; grab bars; fall protection
+- Temperature Sensitivity: flexible schedule; telework/work from home/working remotely; cooling clothing and fans; heated clothing and gloves
+- Work-Related Functions (Policies; Safety Standards): flexible schedule; modified break schedule; periodic rest breaks; policy modification; reassignment; telework/work from home/working remotely; task rotation; cut and puncture resistant gloves and sleeves; machine guards and shields; steel toe shoes and toe guards; protective eyewear; established routes of travel for heavy equipment/vehicles
+Example: A mental health employee with hemophilia restricted from repetitive bending/twisting was given a reacher to pick up lighter objects. (Also: an office worker limited in keyboarding time got speech recognition software plus an ergonomic workstation.)
+
+## Blindness
+Source: https://askjan.org/publications/Disability-Downloads.cfm?pubid=966868&action=download&pubtype=pdf
+- Blind (total): aide/assistant/attendant, Braille labelers, computer Braille display, computer phone software, detectable warning surfaces, flexible schedule, computer headsets, high-visibility floor tape and paint, job restructuring, keyboard tops and labels, optical character recognition (OCR) systems, qualified reader, ridesharing/carpooling, screen reading software and training, service animal, stair tread/textured tape, tactile dots and markers, talking barcode scanner/cash register/color detector/credit card terminal/money identifier, telephone light sensor, telework, worksite redesign
+- Commute: flexible schedule, ridesharing/carpooling, telework, transportation assistance, van conversion
+- Parking: flexible schedule, telework
+Example: A state agency social service worker with no vision was provided reader services for half of every workday. / A financial institution customer service representative who lost his vision was given screen reading software so all screen content and input was read back to him.
+
+---
+
+## Body Odor
+Source: https://askjan.org/disabilities/Body-Odor.cfm
+- Body Odor: air cleaners and purifiers; flexible schedule; odor absorption products; odor control; telework/work from home/working remotely
+- Work-Related Functions (Policies): flexible schedule; marginal functions; modified break schedule; periodic rest breaks; policy modification; reassignment; telework/work from home/working remotely
+- (General guidance: discuss the issue directly and privately with the employee; don't assume the odor is disability-related; if correctable by medical treatment, accommodations may be just flexible scheduling or leave time for treatment; if the job doesn't require in-person interaction, modifying the hygiene policy or working from home may be reasonable; if it does, explore options to reduce/eliminate the problem; consider reassignment to a job without in-person contact)
+Example: A customer service rep recovering from colon cancer whose colostomy bag smelled was provided a private area to clean the bag. (Also: a claims processor with a GI disorder and strong odor flare-ups was allowed to work from home until his condition was under control.)
+
+## Brain Injury
+Source: https://askjan.org/disabilities/Brain-Injury.cfm
+- Attentiveness/Concentration: noise canceling headsets/earbuds; sound absorption panels; fidget devices; flexible schedule; job restructuring; modified break schedule; telework/work from home/working remotely; uninterrupted "off" work time; written instructions; task separation; color coded system
+- Control of Anger/Emotions: flexible schedule; job restructuring; modified break schedule; positive feedback; supervisory methods; support animal/person; counseling/therapy; employee assistance program; job coaches
+- Decreased Stamina/Fatigue: flexible schedule; job restructuring; periodic rest breaks; task rotation; telework/work from home/working remotely; worksite redesign/modified workspace; aide/assistant/attendant; ergonomic equipment
+- Executive Functioning Deficits: calendars and planners; checklists; apps for memory/concentration; written instructions; recorded directives; timers; job coaches; on-site mentoring; extra time; speech recognition software; color coded system
+- Managing Time: electronic organizers; timers and watches; calendars and planners; checklists; extra time; reminders; job coaches; written instructions; task separation
+- Memory Loss: memory apps and software; electronic organizers; medication reminders; voice recorders; checklists; written instructions; additional training time; supervisory methods
+- Organizing/Planning/Prioritizing: organization software and apps; desk organizers; workflow management software; job coaches; professional organizers; checklists; color coded system; task flow chart; on-site mentoring
+- Photosensitivity: alternative lighting; anti-glare filters for fluorescent lights; LED light filters; non-fluorescent lighting; cubicle doors/shields/shades; light filtering glasses
+- Seizure Activity: designated responders; disability awareness/etiquette training; fall protection; flexible schedule; job restructuring; modified break schedule; padded edging; plan of action; policy modification; rest area/private space; telework/work from home/working remotely; workplace safety
+- Stress Intolerance: flexible schedule; job restructuring; modified break schedule; counseling/therapy; employee assistance program; supervisory methods; support animal/person; positive feedback; telework/work from home/working remotely
+- Walking: canes; grab bars; scooters; walkers; wheelchairs; worksite redesign/modified workspace
+- Work-Related Functions (Communicate; Commute; Parking; Policies; Stress; Work Site Access): scribe/notetaker; word prediction/completion software; flexible schedule; ridesharing/carpooling; telework/work from home/working remotely; transportation assistance; accessible parking space; additional training time; policy modification; reassignment; task rotation; accessible workstations; automatic door openers; ramps
+Example: A police officer returning after brain aneurysm surgery with partial left-side paralysis was transferred to a vacant computer-research position and given a one-handed keyboard. (Also: a therapist with short-term memory deficits was allowed to tape-record sessions, replay them before dictating notes, and write up notes in 15 minutes after each session.)
+
+## Burn Injury
+Source: https://askjan.org/disabilities/Burn-Injury.cfm
+- Grasping / Handling-Fingering: grip aids; ergonomic and pneumatic tools; one-handed keyboards; alternative input devices; speech recognition software; writing aids; aide/assistant/attendant; periodic rest breaks; reachers; page turners
+- Pain: adjustable workstations (industrial and office); anti-fatigue matting; ergonomic equipment; fans; flexible schedule; speech recognition software; stand-lean stools; workstation space heaters; aide/assistant/attendant; modified break schedule; service animal; telework/work from home/working remotely
+- Respiratory Distress/Breathing Problem: air cleaners and purifiers; masks/respirators; odor control; flexible schedule; telework/work from home/working remotely
+- Sitting / Standing / Walking: ergonomic and adjustable office chairs; adjustable workstations; stand-lean stools; anti-fatigue matting; scooters; wheelchairs; stair assists; flexible schedule; periodic rest breaks; grab bars
+- Skin Rash/Blisters/Sores: alternative cleaning supplies; disability awareness/etiquette training; job restructuring; odor control; policy modification; touchless faucets
+- Sleeping/Stay Awake: flexible schedule; modified break schedule; sleep alerting devices; apps for sleep/fatigue
+- Stress Intolerance: flexible schedule; job restructuring; modified break schedule; counseling/therapy; supervisory methods; support animal/person
+- Temperature Sensitivity: cooling clothing and fans; portable air conditioners; heated clothing and gloves; flexible schedule; telework/work from home/working remotely; workstation space heaters
+- Work-Related Functions (Parking; Policies; Stress; Work Site Access; Work Station Access): accessible parking space; flexible schedule; policy modification; reassignment; task rotation; telework/work from home/working remotely; accessible workstations; automatic door openers; ramps; monitor risers; large-rated chairs
+Example: A federal agency consultant with severe hand burns got an articulating keyboard tray, a split keyboard, a trackball mouse, and speech recognition. (Also: a maintenance laborer with severe head/neck/back burns who couldn't sweat got a hat, long-sleeved light cotton shirts, a cool vest, and an earlier start time to work mornings in extreme heat.)
+
