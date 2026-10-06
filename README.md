@@ -26,7 +26,7 @@ and stay on the right side of Social Security rules while working.
 ## Install
 
 ```bash
-npx skills add <your-github-username>/Job-Accommodations-Skill
+npx skills add jscott5811/Job-Accommodations-Skill
 ```
 
 Then invoke with `/job-accommodations`.
