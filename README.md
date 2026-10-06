@@ -22,6 +22,9 @@ and stay on the right side of Social Security rules while working.
   reporting requirements, and keeping Medicare/Medicaid while working. From the
   [Social Security Administration](https://www.ssa.gov).
 - **Sample accommodation request letter** — a fill-in template with a checklist.
+- **plain-language skill (bundled)** — the `plain-language` skill this skill uses for all
+  responses is included in this repo (`skills/plain-language/`), so everything works
+  out of the box.
 
 ## Install
 
