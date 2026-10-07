@@ -6,8 +6,7 @@ and stay on the right side of Social Security rules while working.
 ## What's inside
 
 - **JAN guidelines** — the interactive process, how to request an accommodation, what
-  documentation an employer can ask for, confidentiality rules, and accommodation ideas
-  for autism, ADHD, anxiety, incontinence, IBS, and more. From the
+  documentation an employer can ask for, confidentiality rules, and accommodation ideas from the
   [Job Accommodation Network](https://askjan.org) (U.S. Department of Labor, Office of
   Disability Employment Policy).
 - **All 103 JAN disability pages** — individual accommodation ideas from every A-to-Z
